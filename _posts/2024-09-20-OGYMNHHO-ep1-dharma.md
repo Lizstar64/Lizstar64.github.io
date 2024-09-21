@@ -2,8 +2,8 @@
 layout: post
 title: Obscure Games You May Not Have Heard Of - Episode 1, Dharma Doujo
 subtitle: A Game About Blocks
-categories: Obscure Games You May Not Have Heard Of
-tags: [ObscureGamesYouMayNotHaveHeardOf, Games, SNES, Arcade, Puzzle Games, Dharma Doujo]
+categories: ObscureGamesYouMayNotHaveHeardOf
+tags: [Obscure Games You May Not Have Heard Of, Games, SNES, Arcade, Puzzle Games, Dharma Doujo]
 ---
 
 
