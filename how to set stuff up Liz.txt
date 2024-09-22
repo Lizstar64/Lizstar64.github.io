@@ -1,0 +1,5 @@
+touch Gemfile
+bundle init
+bundle install
+bundle
+bbundle exec jekyll serve

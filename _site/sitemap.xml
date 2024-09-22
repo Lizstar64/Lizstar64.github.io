@@ -1,6 +1,14 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <urlset xmlns:xsi="http://www.w3.org/2001/XMLSchema-instance" xsi:schemaLocation="http://www.sitemaps.org/schemas/sitemap/0.9 http://www.sitemaps.org/schemas/sitemap/0.9/sitemap.xsd" xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
 <url>
+<loc>http://localhost:4000/obscuregamesyoumaynothaveheardof/2022/11/13/OGYMNHHO-ep1-dharma.html</loc>
+<lastmod>2022-11-13T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/obscuregamesyoumaynothaveheardof/2022/11/21/OGYMNHHO-ep2-PDS.html</loc>
+<lastmod>2022-11-21T00:00:00-05:00</lastmod>
+</url>
+<url>
 <loc>http://localhost:4000/lizstartrek/2022/12/22/LizstartrekTOS1.html</loc>
 <lastmod>2022-12-22T00:00:00-05:00</lastmod>
 </url>
@@ -25,10 +33,6 @@
 <lastmod>2023-03-05T00:00:00-05:00</lastmod>
 </url>
 <url>
-<loc>http://localhost:4000/obscuregamesyoumaynothaveheardof/2024/09/20/OGYMNHHO-ep1-dharma.html</loc>
-<lastmod>2024-09-20T00:00:00-04:00</lastmod>
-</url>
-<url>
 <loc>http://localhost:4000/oocy/2024/09/20/OOCY.html</loc>
 <lastmod>2024-09-20T00:00:00-04:00</lastmod>
 </url>
@@ -45,7 +49,15 @@
 <lastmod>2024-09-22T00:00:00-04:00</lastmod>
 </url>
 <url>
-<loc>http://localhost:4000/ramastery/2024/09/22/RA1.html</loc>
+<loc>http://localhost:4000/oocy/2024/09/22/OOCY4.html</loc>
+<lastmod>2024-09-22T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/ramastery/2024/09/22/RA1-Ristar.html</loc>
+<lastmod>2024-09-22T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/ramastery/2024/09/22/RA2-DaedalianOpus.html</loc>
 <lastmod>2024-09-22T00:00:00-04:00</lastmod>
 </url>
 <url>
