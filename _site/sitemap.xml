@@ -1,6 +1,30 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <urlset xmlns:xsi="http://www.w3.org/2001/XMLSchema-instance" xsi:schemaLocation="http://www.sitemaps.org/schemas/sitemap/0.9 http://www.sitemaps.org/schemas/sitemap/0.9/sitemap.xsd" xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
 <url>
+<loc>http://localhost:4000/lizstartrek/2022/12/22/LizstartrekTOS1.html</loc>
+<lastmod>2022-12-22T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2023/01/01/LizstartrekTOS2.html</loc>
+<lastmod>2023-01-01T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2023/01/01/LizstartrekTOS3.html</loc>
+<lastmod>2023-01-01T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2023/01/01/LizstartrekTOSmovies.html</loc>
+<lastmod>2023-01-01T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2023/01/29/LizstartrekTAS.html</loc>
+<lastmod>2023-01-29T00:00:00-05:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2023/03/05/LizstartrekTNG1.html</loc>
+<lastmod>2023-03-05T00:00:00-05:00</lastmod>
+</url>
+<url>
 <loc>http://localhost:4000/obscuregamesyoumaynothaveheardof/2024/09/20/OGYMNHHO-ep1-dharma.html</loc>
 <lastmod>2024-09-20T00:00:00-04:00</lastmod>
 </url>
@@ -15,6 +39,14 @@
 <url>
 <loc>http://localhost:4000/oocy/2024/09/21/OOCY.html</loc>
 <lastmod>2024-09-21T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/oocy/2024/09/22/OOCY3.html</loc>
+<lastmod>2024-09-22T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/ramastery/2024/09/22/RA1.html</loc>
+<lastmod>2024-09-22T00:00:00-04:00</lastmod>
 </url>
 <url>
 <loc>http://localhost:4000/about.html</loc>
