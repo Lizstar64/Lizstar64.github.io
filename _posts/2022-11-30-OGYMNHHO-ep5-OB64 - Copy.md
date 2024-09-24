@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Obscure(?) Games You May Not Have Heard Of - Episode 5, Ogre Battle 64: Person of Lordly Caliber
+title: Obscure(?) Games You May Not Have Heard Of - Episode 5, Ogre Battle 64 Person of Lordly Caliber
 subtitle: My Favorite RPG
 categories: ObscureGamesYouMayNotHaveHeardOf
 tags: [Obscure Games You May Not Have Heard Of, N64, RPG, obscure games, Ogre Battle]
