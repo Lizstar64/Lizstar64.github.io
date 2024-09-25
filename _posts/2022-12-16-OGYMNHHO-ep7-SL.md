@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Obscure Games You May Not Have Heard Of - Episode 6, Oh My God!
+title: Obscure Games You May Not Have Heard Of - Episode 7, Super Locomotive!
 subtitle: A Forgotten Gem of the Golden Age
 categories: ObscureGamesYouMayNotHaveHeardOf
 tags: [Obscure Games You May Not Have Heard Of, Arcades, obscure games, Super Locomotive]
