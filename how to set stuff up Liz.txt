@@ -2,4 +2,4 @@ touch Gemfile
 bundle init
 bundle install
 bundle
-bbundle exec jekyll serve
+bundle exec jekyll serve
