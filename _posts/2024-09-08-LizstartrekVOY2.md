@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 1
+title: LizstarTrek - Voyager Season 2
 subtitle: A Rocky Start
 categories: LizstarTrek
 tags: [Star Trek, Voyager, Reviews]
