@@ -45,8 +45,8 @@ copyright: "2024-{currentYear} {author}"
 description: >- # this means to ignore newlines until "baseurl:"
   A place where Lizstar writes about the stupid junk she wants to write about. Special interests include yuri, video games, writing, yuri, obscure video games, and a lot of yuri.
 
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site, e.g. https://example.com
+baseurl: "https://lizstar64.github.io/" # the subpath of your site, e.g. /blog
+url: "https://lizstar64.github.io/" # the base hostname & protocol for your site, e.g. https://example.com
 favicon: "" # the favicon for your site
 
 # Yat date format
