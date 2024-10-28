@@ -24,7 +24,7 @@ Aaand we're back. Tuvok is getting some burritos, hes a big fan of tex mex. I gu
 
 Okay, the more I watch this villain, the less I like him. He legit feels like a fucking mary sue in a fanfic. Oh, he had holo-emitters set up in his office, of course. Also he already reverse engineered a holo-emitter device that allows the doctor to move around freely. And he can use an apple PC to outsmart Voyager. Yes he's using 500 year technology on them but that's not how technology works, and that's not how this works at all. If you give a computer to a dude from the 1100s he would be able to use it to defeat a conquistador, is what I'm saying. This ENTIRE concept is completely out the window, none of them are selling it, and since it's the entire basis of the episode, it makes it less and less likable the more they push it.
 
-<img src="https://imgur.com/undefined.png" alt="trek">
+<img src="https://imgur.com/JYKtC69.png" alt="trek">
 
 They warp Elon Musk up, which they should have done ages ago, with Sarah Silverman helping them out now. But of COURSE Elon Musk has a fucking machine that makes it so he can disrupt transport, which seems like a BAD idea, but also he's a fucking dumbass. It DOES make Chakotay and Torres crashland in Arizona though, where they're found by anti-government farmers who capture them, accuse them of beign spies, and threaten them with SPAS shotguns. Where the mother fuck did these people get military grade weapons? Also they keep insulting Chakotay because he's a native. I hate this episode, I think. I think they're implied to be WACO? JFC.
 
