@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - DS9 Season 6, Episodes 6 - 
+title: LizstarTrek - DS9 Season 6, Episodes 6 - 10
 subtitle: This is basically a DS9 movie.
 categories: LizstarTrek
 tags: [Star Trek, DS9, Reviews]
@@ -121,9 +121,9 @@ Anyways this episode sucks and I kind of hate it. But I don't really wanna go in
 
 <img src="https://imgur.com/iN39qZW.png" alt="trek"
 
-The episode starts with Quark being his Quarky self, when he gets some bad news from the Nagus. Moogie has been kidnapped by the Dominion. Why would she be kidnapped? Who knows, doesn't matter. What matters is Quark needs to rescue her, and he needs to put together a crackpot team of the galaxy's best Ferengi. We've got Nog, obviously, his Moogie is captured. We've also got Rom, who is talked into it easily by being told he'll be given Worf's job on Quark's ship, basically. We've also got a very weird Ferengi, his name is Leck. He's an "Eliminator", who doesn't care about latinum, but is VERY excited to possibly kill some Dominion. And finally, Quark pays his cousin Gaila's bail, to get him out of jail to help out. And as they're all bickering and arguing, Ex-Liquidator Brunt shows up and offers to help, cause it might help him get his job back. No one likes him, but he has a ship, so...
+The episode starts with Quark being his Quarky self, when he gets some bad news from the Nagus. Moogie has been kidnapped by the Dominion. Why would she be kidnapped? Not like Ferenginar is allied with the Klingons or the Federation. Who knows, doesn't matter. What matters is Quark needs to rescue her, and he needs to put together a crackpot team of the galaxy's best Ferengi. We've got Nog, obviously, his Moogie is captured. We've also got Rom, who is talked into it easily by being told he'll be given Worf's job on Quark's ship, basically. We've also got a very weird Ferengi, his name is Leck. He's an "Eliminator", who doesn't care about latinum, but is VERY excited to possibly kill some Dominion. And finally, Quark pays his cousin Gaila's bail, to get him out of jail to help out. And as they're all bickering and arguing, Ex-Liquidator Brunt shows up and offers to help, cause it might help him get his job back. No one likes him, but he has a ship, so...
 
-And thus we have our team. A bartender, an outcast, a psychopath, a failed weapons dealer, a failed traitor, and the smartest man in the Alpha Quadrant. But even Rom being with them isn't going to help. All of their training is not working out. Leck keeps shooting Moogie after everyone else runs away, cause hey, putting her out of her misery. But Rom, again being the smartest person in the Quadrant, says they're playing to their weaknesses. Time to play to their strengths. They put in some favors with the Federation to get Keevan, the Vorta who was captured a few episodes ago, to trade. And they meet up on Empek Nor, the DS9 clone. Cool!
+And thus we have our team. A bartender, an outcast, a psychopath, a failed weapons dealer, a failed traitor, and the smartest man in the Alpha Quadrant that isn't Chief O'Brien. But even Rom being with them isn't going to help. All of their training is not working out. Leck keeps shooting Moogie after everyone else runs away, cause hey, putting her out of her misery. But Rom, again being one of the smartest people in the Quadrant, says they're playing to their weaknesses. Time to play to their strengths. They put in some favors with the Federation to get Keevan, the Vorta who was captured a few episodes ago, to trade. And they meet up on Empek Nor, the DS9 clone. Cool!
 
 <img src="https://imgur.com/88mshWk.png" alt="trek"
 
@@ -137,7 +137,7 @@ With no prisoner, what else can we do? We have one last plan.... use cortical st
 
 That's right. This is Magificent Seven meets Weekend at Bernies.
 
-It's tense, it's a very tense situation, but they make it out, and get the element of surprise. Leck gets to kill his Jem'Hadar, which he's VERY excited about, and they capture Iggy Pop to give to the Federation as a gift. And they leave, happily, as Keevans' corpse walks into a wall over and over.
+It's tense, it's a very tense situation, but they make it out, and get the element of surprise. Leck gets to kill his Jem'Hadar, which he's VERY excited about, and they capture Iggy Pop to give to the Federation as a gift. And they leave, happily, as Keevans' corpse walks into a wall over and over. You can actually see the actors laughing, barely able to hold themselves together as they watch him. Armin Shimmerman was having a blast, which always helps me like an episode more.
 
 This episode is VERY funny, extremely enjoyable.
 
