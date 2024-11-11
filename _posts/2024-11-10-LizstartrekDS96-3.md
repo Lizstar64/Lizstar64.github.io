@@ -129,7 +129,7 @@ This one was a little goofy and fun. Weirdly, the Alpha and Gamma Jem'Hadar stuf
 **Honor Among Thieves** - DS9
 8/10
 
-<img src="https://imgur.com/q69S1I1.png" alt="trek">
+<img src="https://imgur.com/laWK7Z0.png" alt="trek">
 
 O'Brien is undercover in a seedy bar in the armpit of the universe. Why is it O'BRIEN? Dunno. Just had to be. O'Brien is good at what he does, I guess. He's not an INTELLIGENCE SPY, and he's also kind of famous, but it's fine. Anyways, he's under cover, watching some Orion Syndicate peoples. He gets an in with them when he spikes one of their little brain connector thingies, and then saves them. Boom, he's got an in.
 
