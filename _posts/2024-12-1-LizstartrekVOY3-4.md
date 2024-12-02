@@ -124,14 +124,14 @@ This episode's A plot was basically perfect and hit very, VERY hard. The B-plot 
 **Distant Origin** - VOY
 9.5/10
 
-<img src="https://imgur.com/nXtBN9q.png" alt="trek"
+<img src="https://imgur.com/nXtBN9q.png" alt="trek">
 
 We've got two scientists, Voth, a reptilian race. We've got Veer, and Gegen, who find a Voyager crewman who died a season ago, and determine that his DNA is actually shockingly similar to their's, which supports Gegen's theory: The Voth did not evolve here, but are from the Alpha Quadrant. Now they need to hunt down this ship and find out what they can about these people. When they go to get funding, however, the People In Charge are bothered, because this could upset the balance (namely, the fact that they claim they are the most superior people here, and disrupt their power, y'know how it is). They charge Gegen, so Gegen and Veer go to chase after this dead person's vessel. They have a thing in his tech that says they're chasing after something called... Voyager.
 
 This is a VERY good and interesting setup.
 
 
-<img src="https://imgur.com/IANmL5L.png" alt="trek"
+<img src="https://imgur.com/IANmL5L.png" alt="trek">
 
 They make it to Voyager, and sneak on board, cloaking to examing. It's basically two nerds walking around and making biological commentary about humans. They're not harmful or evil at all, just weird. And then they're discovered. The Federation, understandably, think they might be dangerous. And they run away like "maaaybe we should explain outselves", but when they're shot at, and the younger one, Veer, shoots back, stunning Chakotay. Gegen kidnaps Chakotay, while Veer goes into hibernation out of fear.
 
@@ -139,7 +139,7 @@ Chakotay and Gegen kinda bond, because Gegen is a pleasant dude who just wants t
 
 Now Gegen gets a message. They have Voyager and will kill everyone if he doesn't come to stand trial for heresy.
 
-<img src="https://imgur.com/qvtCi9Q.png" alt="trek"
+<img src="https://imgur.com/qvtCi9Q.png" alt="trek">
 
 The last part of the episode is a trail. Gegen is on trial in a kangaroo court, Veer denounces him publicly, probably cause he was threatened. Gegen and Chakotay defend themselves, and science, against conservative ignorance. It's very well written, though regretably it IS held back by Chakotay reading his lines with all the temerity of a guy reading the TV Guide out loud. The bigoted, conservative minister is going to lock EVERYONE in a detention colony unless Gegen publicly denounces his scientific claims. It's PAINFUL watching him denounce it.
 
