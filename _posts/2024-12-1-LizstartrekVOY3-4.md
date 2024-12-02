@@ -12,7 +12,7 @@ tags: [Star Trek, Voyager, Reviews]
 Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you're curious about a nerd's views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I've watched some Star Trek before but not all of it!
 
 
-**Alter Ego** - VOY
+**Rise** - VOY
 6/10
 
 <img src="https://imgur.com/W02qh83.png" alt="trek">
@@ -32,7 +32,7 @@ Anyways Tuvok goes on the roof and gets thrown off by the traitor, who's the guy
 The actual episode part of the episode was just okay, though I did really like the Neelix and Tuvok parts
 
 
-**Alter Ego** - VOY
+**Favorite Son** - VOY
 4/10
 
 <img src="https://imgur.com/LfhWsO6.png" alt="trek">
