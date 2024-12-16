@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - DS9 Season 6, Episodes 21 - 25
+title: LizstarTrek - DS9 Season 6, Episodes 21 - 26
 subtitle: I love this show so much
 categories: LizstarTrek
 tags: [Star Trek, DS9, Reviews]
@@ -166,3 +166,40 @@ Anyways they go, and find out she's been dead for years. The anomaly that they h
 <img src="https://imgur.com/sW6ycOK.png" alt="trek">
 
 They couldn't save her, but they have a funeral for her, because over those six days, she had become a friend. And not only that, but she taught them all that they needed to talk, that they were holding things inside. It's really touching. A very good scene. And a good episode! The Quark B plot was alright but mostly unrelated and didn't fit in, but it ended quite nicely.
+
+
+**Tears of the Prophets** - DS9
+5/10
+
+<img src="https://imgur.com/L3PVskj.png" alt="trek">
+
+Things are gonna be changing around here.
+
+An admiral shows up to award Sisko an... award, and also tell him that he's been chosen to plan the invasion of Cardassia! A big call. He only lost 70% of the fleet taking back DS9, so it'll go better this time.
+
+Meanwhile, Worf and Dax are thinking of having a baby! Quark and Bashir are being weird about it because they're being weird incels cause Dax is hot. Look, yes, she's hot, I want to date her too, but she shot you both down SEASONS ago, get over it. You're already dating one of the hottest lizards in the quadrant, Bashir, stop being greedy.
+
+<img src="https://imgur.com/NAAU6y4.png" alt="trek">
+
+Meanwhile, guess who's back at Cardassia? That's right, it's Dukat! And he's looking... a little off. His makeup feels more rough, less correct. I think it's on purpose, especially when he's side by side with Damar. He's not doing so hot. No one on Cardassia, even Damar, really wants anything to do with him, but they ask him what he wants. And all he wants to do is give them the Alpha Quadrant... and all he needs is an artifact they took from Bajor and is still sitting on Cardassia, somewhere, probably
+
+<img src="https://imgur.com/WZFyvjX.png" alt="trek">
+
+Hey, our boy is back! Yes, he's gonna be an actual fixture! He sings a serenade to "the losers", AKA Quark and Bashir, and then tells them to fucking get over themselves, they never had a chance and this was over years ago. Namely, six fucking seasons ago. This also feels weirdly out of nowhere considering the rest of the episode is planning to invade Cardassia, but it WILL come together. For better or for worse.
+
+<img src="https://imgur.com/UUhRO5z.png" alt="trek">
+
+Oh hey we found out what Dukat is looking for. "We've spent too long fighting the Bajorans. We should have fought their gods". And then he released a Pah Wraith and accepts it inside him. Super Powered Dukat D:
+
+While the invasion is going on, Dukat beams onto DS9, murders Dax in cold blood in a VERY brutal and upsetting scene, and then released the Pah Wraith into an Orb, basically breaking it apart. Dukat, then fully in control of his faculties, is like "I never intended to do you any harm, sorry~" then beams back away. The broken orb seems to have affected Sisko out in the battle, and he's taken to his room while Kira takes control of the battle. They manage to win the battle and ground troops land on Cardassia. So I guess Dukat's plan didn't work? Uh no, bad news. The wormhole is gone.
+
+<img src="https://imgur.com/HvJezFe.png" alt="trek">
+
+Dax is dying, and while Bashir saved the symbiont, Jadzia can't be saved. She's come down with an extremely terminal case of Rick Berman. While this might have been emotional if I watched it in the late 90s, I watch it in the mid 2020s with hindsight about WHY it happened, and I'll be real, I fucking hate it. It also doesn't help that this entire episode has been her being all happy and going "oh boy a baby oh gee I'm so happy I love my life I sure do love living and being alive", like the death flags are ALL OVER HERE.
+
+Everyone takes this poorly, ESPECIALLY Sisko, who is so shaken that he essentially quits, both as Emissary and as Captain. Everyone says they'll be waiting for him when he gets back, and then he leaves with Jake. Kira thinks that he's not coming back. Why? Cause he took the baseball with him.
+
+So basically, Dax's actor was like "So, since the show is ending next season, I want to look for more work. Can we re-negotiate my contract so I'm more of a recurring character and not a main character?" and Berman went "No, guess we'll fire you and kill of your character". And none of the writers or other co-producers knew this conversation at all, they just assumed that she was leaving cause she wanted off the show. And when they found out, they were PISSED. **I'm** pissed. Its the most Rick Berman thing in the entire series, and it's AWFUL to me. What this means for the future of the show, we'll see, but it already starts in a VERY gross part. And her death wasn't even very good or exciting, like. She's just one shot with no agency, and then is given a "there's nothing we can do, they lost the will to live". And this is AFTER the episode starts with two horny bachelors going "God I wish I could fuck Dax". I hate this. A lot.
+
+The rest of the episode is FINE? It's a lot of religious stuff that's okay, but it jumps around a lot. And it ends even worse. And that "I've failed as a starship captain" thing??? Like, what would have changed if you stayed home? Could YOU have stopped Ultra Instinct Super Saiyan God Dukat??? He one shot Jadzia with a Red Laser Beam that looked HORRIBLE to experience. At least now we have a foothold in Cardassia!!
+
