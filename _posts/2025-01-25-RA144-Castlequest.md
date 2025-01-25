@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Retro Achievement Mastery 143 - Bible Buffet
-subtitle: Why does this exist
+title: Retro Achievement Mastery 144 - Castlequest
+subtitle: A weight on my childhood
 categories: RAMastery
 tags: [Retro Achievements, NES, retro games, Castlequest, obscure games, Reviews]
 ---
