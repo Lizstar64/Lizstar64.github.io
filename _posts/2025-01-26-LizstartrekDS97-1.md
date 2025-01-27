@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - DS9 Season 7, Episodes 1 - 5 - 
+title: LizstarTrek - DS9 Season 7, Episodes 1 - 5
 subtitle: The Start of the End
 categories: LizstarTrek
 tags: [Star Trek, DS9, Reviews]
@@ -17,7 +17,7 @@ Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my rev
 **Images in the Sand** - DS9
 7/10
 
-<img src="https://imgur.com/fiK79p8.png" alt="trek">
+<img src="https://imgur.com/f2sydCU.png" alt="trek">
 
 Things are shaky. It's three months later. The wormhole is closed, Sisko is gone, and most alarmingly, a Pah-Wraith cult is appearing. They feel abandoned by the Prophets, so surely let's all wear red armbands and pretend it's not evil as shit to do.
 
@@ -74,7 +74,7 @@ Eh.
 **Afterimage** - DS9
 2/10
 
-<img src="https://imgur.com/qqRW3Lq.png" alt="trek">
+<img src="https://imgur.com/v2FdGMx.png" alt="trek">
 
 Ezri is struggling to adjust to life on DS9. Everyone is kinda distant. They can't see her without seeing Jadzia, who obviously she is NOT. She has no interest in staying and joining on as a counsellor, which is neat that she is one cause god they need it and ALSO it's very different from Jadzia. Only Quark and Sisko are normal around her. 
 
@@ -101,8 +101,6 @@ We get Garak having another mental breakdown (wow, that talk didn't fix him? No 
 Worf sees Ezri and Bashir being friendly and even though he said "I DO NOT KNOW YOU OR WANT TO KNOW YOU", fucking threatens to beat the shit out of Bashir if he's even NEAR her. When did DS9 become a poorly written teen drama??? These people aren't acting like seasoned Starfleet officers.
 
 This episode feels very poorly written. Everyone is better and angry in a way that's uncharacteristic and uncomfortable and not pleasant to watch. We have to watch Garak yell at Ezri about how worthless she is. That is not pleasant to watch, but at least it makes sense because he's having a week-long panic attack, but when Ezri is like "I should quit" to Sisko, he tells her how worthless and pathetic she is, and that while her 8 lives were fine, the 9th will be a failure. What the FUCK, Sisko??? Yes, he's just trying to drive her to actually do a good job, but jesus fuck.
-
-<img src="https://imgur.com/u1jpdjC.png" alt="trek">
 
 Garak feeling guilt and having panic attacks over betraying all of his people and helping the Federation kill Cardassians, who are forced to fight for the Dominion deserved a much better episode. After his panic attack he's like "oh I'm better now" and Ezri is like "That means I'm worth something, I'll stay in starfleet". Rushed and shitty as the rest of the episode. This episode boils therapy down to "you just need to find out what the cause of your problems are and then you're good". It LITERALLY says that. Anyways, she IS still planning to leave, cause Worf is a shithead.
 
@@ -175,7 +173,7 @@ Anyways this happens, obviously.
 
 Okay, I'm tired of pussy footing around it. I hate the concept of this episode at its core. The other three members of the squad go "why can't you fix US too and make US normal?" and AAGHHHH. Once again, I don't think it's bad to use sci-fi ideas to represent real world things, but if you're going to do that, do that WELL. THIS screams like, Autism Speaks bullshit. FIX THEM? CURE THEM? GOD it DISGUSTS me.
 
-Neli says this is just "Flowers for Algernon" but Star Trek. I'll agree with her I guess, I haven't seen it.
+Neli says this is just "Flowers for Algernon" but Star Trek. I'll agree with her I guess, I haven't read it.
 
 Anyways, things start going too fast, and she starts to regressing back into herself. Turns out she's just shutting down though cause she doesn't actually love Bashir back. But she wants to be there for him and love him cause of all he did for her. Oh. It's a power dynamic thing. This is why you DON'T DATE YOUR PATIENTS, BASHIR. I mean, they don't talk about how fucked up this is as they NEED to, but at least they bring it up. Kinda.
 
