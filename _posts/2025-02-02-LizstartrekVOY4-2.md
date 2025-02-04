@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 4 episodes 2 - 
+title: LizstarTrek - Voyager Season 4 episodes 6 - 10
 subtitle: Okay, this part of Voyager has been actually kinda good
 categories: LizstarTrek
 tags: [Star Trek, Voyager, Reviews]
