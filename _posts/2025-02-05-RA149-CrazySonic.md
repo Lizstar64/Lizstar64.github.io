@@ -3,7 +3,7 @@ layout: post
 title: Retro Achievement Mastery 149 - CrazySonic
 subtitle: For all the Venezualan Bus enthusiansts out there
 categories: RAMastery
-tags: [Retro Achievements, Arcades, retro games, Sonic, romhacks, Reviews]
+tags: [Retro Achievements, Genesis, retro games, Sonic, romhacks, Reviews]
 ---
 
 
