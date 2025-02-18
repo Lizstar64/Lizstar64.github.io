@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 4 episodes 11 - 
+title: LizstarTrek - Voyager Season 4 episodes 11 - 15
 subtitle: Okay, this part of Voyager has been actually kinda good
 categories: LizstarTrek
 tags: [Star Trek, Voyager, Reviews]
@@ -111,7 +111,7 @@ Chakotay finds the sleeping aliens, has the Doctor target a nuke on them, and th
 Everyone is out, they think. They all have bad insomnia, understandable. And that's it. The aliens' like, real reasons aren't explained, and uh, it feels kinda flat.
 
 
-**Waking Moments** - VOY
+**Message in a Bottle** - VOY
 5/10
 
 <img src="https://imgur.com/VkdGtVc.png" alt="trek">
