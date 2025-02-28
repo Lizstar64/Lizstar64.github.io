@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Retro Achievement Mastery 154 - Madou Monogatari: Hanamaru Daiyouchi Enji 
+title: Retro Achievement Mastery 154 - Madou Monogatari - Hanamaru Daiyouchi Enji 
 subtitle: Overshadowed by Puyo
 categories: RAMastery
 tags: [Retro Achievements, SNES, retro games, obscure games, Madou Monogatari, Reviews]
