@@ -3,7 +3,7 @@ layout: post
 title: Retro Achievements Unmastered 1 - Metroid Rogue Dawn
 subtitle: My new OC, Blamus Blaran
 categories: RAMastery
-tags: [Retro Achievements, NES, retro games, Metroid, romhacks, Reviews]
+tags: [Retro Achievements, NES, retro games, Metroid, romhacks, Reviews, Unmastered]
 ---
 
 
