@@ -1,7 +1,7 @@
 ---
 layout: post
-title: LizstarTrek - DS9 Season 7, Episodes 20-24
-subtitle: Nearing the end
+title: LizstarTrek - DS9 Season 7, Episodes 20-25
+subtitle: The more things change
 categories: LizstarTrek
 tags: [Star Trek, DS9, Reviews]
 ---
@@ -11,8 +11,6 @@ tags: [Star Trek, DS9, Reviews]
 
 
 Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you're curious about a nerd's views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I've watched some Star Trek before but not all of it!
-
-After this we have one episode of DS9 left. I'll repost this next week when we watch it, cause it's extra long.
 
 ---
 
@@ -143,3 +141,66 @@ Anyways, this happens.
 Plot twist, it was never going to be Quark. Obviously. Who the hell wants him to be Nagus??? Rom is going to be the new Nagus. Quark throws a hissy fit, but eventually comes to it. And yep. Rom deserves this. A great conclusion to one of the unsung best characters in all of DS9
 
 Oh hey, Sisko's wife is gregnant. We never DID find out what the Prophets were warning about with that. I dunno what's funnier, that the prophets couldn't judge the severity of a situation, or that it really was the pepper plant.
+
+
+
+
+**What You Leave Behind** - DS9
+7/10
+
+<img src="https://imgur.com/ozEwD1X.png" alt="trek">
+
+We have everyone's reactions to having to Battle of the Bulge the Dominion. Ezri and Bashir make out, to all of our collective groans. O'Brien is talking about retiring to teach at a university after the war ends. He's ALSO not talked about it to Bashir, his Husband, which is Bad. I love that they tried to make Bashir less gay by seperating him from Garak and getting him a girlfriend, but then just made him MORE gay with all the subtext with Bashir and O'Brien.
+
+Meanwhile, on Cardassia, everyone is awaiting the fleet patiently, but nervously. We have Cardassian Quisling, who's Damar's replacement to work with the Dominion. He's doing his best. He has no respect. Just like a Quisling. Unfortunately, they are NOT happy cause of all the citizens rising up and attacking Dominion installations. Sooooo they retaliated. First they strangled the Quisling a bit, and theeen.
+
+<img src="https://imgur.com/yDHrCyc.png" alt="trek">
+
+Everyone is ENRAGED. It's time to strike back, and hard. As Garak says, "Chop of a snake's head and the body will die." Unfortunately, the Jem'Hadar find them, kill Garak's nanny, and fucking THROW HER CORPSE AT THEM with a GERNADE ALONGSIDE IT. Poor Garak is NOT doing well. They're all captured and to be IMMEDIATELY executed. Unfortunately for THEM, they're IMMEDIATLEY shot in the back by their Cardassian allies, who go "THat's for the city you blew up". WOW. I CAN'T BELIEVE THAT TACTIC FAILED!! And then the Cardassian ships turn traitor and start attacking the Dominion ships, turning tides of battle.
+
+<img src="https://imgur.com/PkLKCDV.png" alt="trek">
+
+The Female Changeling calls for a Cardassian genocide. Starting with their Quisling. Wow, what a fucking surprise.
+
+Meanwhile, Kai Winn and Ducat reawaken the Fire Caves. Oh yeah that plot is happening! That feels a little out of context for everything ELSE thats happening, but it's fine.
+
+In the attack on the Dominion HQ, Damar is killed. His last order... Keep. Don't give in. NEVER give in. Rest in peace, Damar. Genuinely NEVER seen a better turn around for a character than Damar. A nameless extra in the background of a villain, to a horrible hated villain, to a funny comedic villain drunkard, to someone you GENUINELY FEEL FOR. He wasn't perfect, at all. He was awful. But he could have been better, and he was genuinely trying to be by the end.
+
+<img src="https://imgur.com/tfGSfpz.png" alt="trek">
+
+Wow we're killin people left and right! That was the last Weyoun clone. He's gone for good. Odo comes down and links with the Female changeling, and she IMMEDIATELY surrenders. The war is over. The war is done. She'll stay and stand on trial, though. So who's going to go cure the Great Link? Odo. It's Odo. Odo is the going away, take a drink ):
+
+We get a VERY good scene with Garak and Bashir, and a sendoff to our boy. The last time we see him. Ohh, Garak. "Spare me your Federation optimism. Yes, Cardassia will surive. But not the Cardassia I knew." But it WILL become better.
+
+We get the final story threads closing. Worf leaves to become an ambassador to Kronos. Goodbye, Worf. So, I kinda hated DS9 Worf?  But he's been pretty good for the past 6 episodes. Much better as the sassy friend. Obrien is leaving Odo is leaving, Worf is leaving. We even get one last Vic Fontaine song! It's a cute little sendoff to all of the main cast members. And that's the end, a great send-off to-
+
+Oh, yeah. We have one more thing. Sisko is suddenly like "Oh yeah, I now know what I need to do. But I WILL be back" and then he goes to the Fire Caves.
+
+<img src="https://imgur.com/L8ExRUU.png" alt="trek">
+
+Kai Winn thinks she's been chosen as the Emissary of the Pah Wraiths, but no, it's Gul Dukat. Wow what a surprise, if you can't trust something called THE PAH WRAITHS. Now Dukat is a super powered evil satan. Sisko is doing his best to act in this, but it's a bit silly. And doesn't feel very Trekky to me.
+
+<img src="https://imgur.com/lIFkWO7.png" alt="trek">
+
+Kai Winn is burned by the Pah Wraiths, and then Sisko throws himself into the fire, pushing Dukat into it, who's burned away like fucking Gollum, with his book. This seals the Pah Wraiths away again, but also "kills" Sisko. He's still here, of course. He's in a white void, and is told that he's with them now.
+
+THIS is what they built up for the past seven seasons, since episode 1. The Prophet storyline hasn't been super interesting, tbh, all together. And here it doesn't make the story BETTER, IMO. But it's not THAT bad.
+
+Sisko Prophet Warps into Casidy's mind and tells her he WILL be back. Maybe in a year. Maybe yesterday. He still has things to do, but he WILL be back. This is one of the major things in the ending, Sisko was going to just Die, but his actor was like "Fuck that, I'm not gonna be a disappeared dad". So he WILL be back. 
+
+Then we get a weird-ass clip show with Bashir and O'Brien? I do NOT get it. And then we get clip shows with EVERYONE. I.... I don't like this. It's weird clip shows of all the characters and their relationships over the past 7 seasons, with cheesy 60s violin music behind it. If you were gonna do this, do it during Vic's song. The thing is, this is the LAST WE'LL SEE OF MOST OF THESE CHARACTERS. THEY WON'T COME BACK IN ANY FUTURE TREK SHOWS.
+
+At least after this we get Quark and Odo being sassy at each other. Quark LITERALLY says "That man loves me". MY SHIP IS CANON. Odo returns to the link, with one last kiss for Kira. She says she'll never forget him. I think the implication is she won't date after him, but I like to imagine that right now in the current canon, 20 years in the future, she has like 4 girlfriend. Her story ends with her looking at Sisko's baseball on her new desk with a smile. And our entire story ends with Quark going "the more things change, the more they stay the same", as Jake watches the Wormhole with Kira.
+
+The first half of this episode, with the battles and the action was very good. The second half kinda flubbed it. It's hard to end a series like this, but I think all of this stuff actually worked, FOR THE MOST PART. By this stuff I mean the past 9 episodes, which all move into each other and tie up the loose threads. But this ending with them breaking up the band, just for dramatic tension? Not a fan.
+
+
+....And that's DS9.
+
+**Thoughts**
+
+It's my favorite Trek, other than SNW. Too many good episodes to name, and honestly? I don't think I had a single 1/10 here? The closest was that fucking Worf Terrorist episode I gave a 1.5/10. I stand by that. ONLY because it gave us nearly naked Jadzia. Oh man, Jadzia. Look, this show had some of the best Trek characters, and not all of them were handled well. But when they hit, they hiiiiittttt.
+
+A lot of people say DS9 is the best because it "shows a dark mirror to the Federation" or whatever the fuck. That it's darker, edgier, more willing to show the wicked evils at the heart of Socialist Utopia Future. That's not why I like it. I like it because it shows that stuff but also the optimism at the heart of it. I like DS9 because it's designed SPECIFICALLY to show the underdogs, the citizens, the regular shmoes. You'd never get a Rom on TNG. You'd never see a Garak on TNG. DS9 also introduced a lot of good recurring villains! TNG had like... Lore? I think that's it? But here, Gul Dukat is MOSTLY really good! I didn't like how his story ended very much, but he was very good for like 90% of the show. Kai Winn was AWFUL, I love hating her. Damar. DAMAR. FUCKING DAMAR. NONE of these characters could be on TNG, and they certainly couldn't be on Voyager. But they're here, and the show is all the better for it.
+
+Goodbye, DS9. I'll miss you.

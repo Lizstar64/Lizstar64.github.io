@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 4 episodes 20-25
+title: LizstarTrek - Voyager Season 4 episodes 20-27
 subtitle: Evil Janeway is hot and I want her to step on me
 categories: LizstarTrek
 tags: [Star Trek, Voyager, Reviews]
@@ -162,3 +162,60 @@ They take Harry and Paris back, and they IMMEDIATELY start suffocating. The doct
 Janeway is weirdly aggressive, as the ship is being held down by this silver goop. She has a beam thing that can hurt it, and help them escape, and Fake Kim BEGS her to stop. She's still aggressive, and like "okay I will blow you all away if you don't let us go". Kim literally says "WE DESERVE LIFE". We've had arguments about this in episodes before, but we've not really had a Starfleet Captain willing to throw away sentient life like this.
 
 So, to explain, this goop, it's called "The Silver Blood" by Janeway. It gained sentience by finding Kim and Harry. And it doesn't want to be alone, so it wants to use the rest to make it a family. Janeway lets people give it their DNA so it can literally create a second race of changelings to take over the Delta Quadrant, and then blast off with more Deuterium than they could ever want. This episode was alright.
+
+
+
+**One** - VOY
+8/10
+
+<img src="https://imgur.com/dOgHjQ6.png" alt="trek">
+
+Our episode starts with Seven practicing getting to know people better. She does this by interrogating them, then the Doctor stops the holoprogram and is like "Okay tell me what you did wrong" "Nothing." "...Okay then."
+
+You know it's bad when the DOCTOR is having to give Not Be A Dick lessons
+
+Anyways the crew enters a nebula with some radiation and everyone is suddenly being burned like, from the inside out. They're too hurt to even get out of the nebula, Tuvok has to Vulcan his way to the console. One person straight up dies. Yet another one gone. The Nebula is in their way, and it'll take a month to get through it. A whole YEAR to go around it. The Doctor can put everyone in suspended animation pods, but uh, that's a WHOLE MONTH of just the Doctor. Well, not just the Doctor.
+
+Seven is immune to the radiation, it seems. Oh, Borg Shenanigans. She'll also stay awake. Janeway is a bit worried, cause it's bad enough that as a Borg she's now on a ship with 150 people, but total isolation is very rough on Humans. She thinks she can handle it, though. Everyone is A Little Concerned.
+
+<img src="https://imgur.com/Xq8TtqD.png" alt="trek">
+
+Things go well at the start. Sort of. I mean, things are GOING, at least. Paris is claustrophobic and does not like being in the coffin, so he sleep walks out of it. That's weird. But at least he's not horribly burned. But over all, Seven is being a little irritable. So is the Doctor, mind you, but that's mostly cause he has to put up with her. So it's more Holodeck How To Be Personable time. And you know what? She does it. HOW does she do it? By getting Neelix and Janeway into her hyper fixation so they can all gush about warp fields and shit. Everyone's big into it, but the Doctor is like "No you're failing". Bitch, she did good, how dare you. You're just jelly.
+
+This is all interrupted by the warp core breaching. That's not good. Turns out it's not actually though, they're fine. The Neuropacks are having problems and freaking out. And not just that, but also the Doctor's holo emitter. He has to stay in sickbay for the rest of the two weeks. She'll now REALLY be alone. Yes, they were just bickering and being rude to each other, but this is... a bit more. Things are already going bad. She's having dreams. The ship is breaking down more and more. She's hearing things, people calling out for her.
+
+<img src="https://imgur.com/7rjnPEe.png" alt="trek">
+
+But then, someone shows up. Someone else trying to get through the nebula, asking to trade some parts. Seven does so, though he's... creepy, and uncooperative. It eventually turns to her escorting him out of the ship, but he gets away from her. 
+
+<img src="https://imgur.com/g3RiuEE.png" alt="trek">
+
+She hunts down this guy, as he mocks her. She sees and hears more fucked up shit as she goes. But this guy is impossible to defeat. Impossible because... he's not real. The Doctor manages to fix himself in time to find her waving a gun at the air. He also thinks the radiation is effecting her. Unfortunately, before he can try and help, he's deactivated by the ship breaking down even more. Now it's LITERALLY just her. And she's not taking it well.
+
+What follows is her being nuts and doing what she can to survive. She barely does. In the end, she cuts life support to reroute it to the engines so they could make it through. She nearly doesn't make it, but she does. She gets them through. And she realizes what it truly means to be alone, and to want companionship. In the end, she goes to spend time with her crewmates in the mess hall. It's sweet. Everyone is mean to Neelix for some reason.
+
+
+**Hope and Fear** - VOY
+9/10
+
+<img src="https://imgur.com/rwN3reQ.png" alt="trek">
+
+Seven and Janeway are butting heads. Seven is very competitive right now. There's a hot scene where they're playing Sportball. It's good. Anyways, Janeway's big project these days is trying to decode the message Starfleet sent them. It's very degraded and encrypted. Luckily, there's a guy here to help! His name is Arturis, he met Neelix while trading and is VERY good at languages. Janeway asks for his help, and he manages to fix it easily. It's a bunch of messages, including a star chart nearby!
+
+There, in the area they were pointed to, is a Federation starship! A new class they've never heard of, and it has a weird-ass drive called a "Warp Slipstream" drive. No one is on board, just them. The Slipstream drive should help them speed along home in only 3 months!! Wow, I can't believe Voyager is about to end.
+
+<img src="https://imgur.com/eywgWnz.png" alt="trek">
+
+The message from the admiral explains to them that they've been developing this technology, and sent it along to rescue them. Oh how nice!! It's perfect! ...Too perfect. Tuvok, Seven, and Janeway are all suspicious. They all WANT it to be true, but Janeway immediately thinks "I think this Arturis guy is sus". Well, MOST of them want it to be true.
+
+Seven decides to stay behind. When Kim tells her "it won't be the same without you", she smiles. ACTUALLY smiles. But she's unhappy. Scared, about going with them. But then they make a breakthrough on the last bit of the message that Arturis said "was unrecoverable". THey recover it. It it is an Admiral apologizing that he can't send them any better way to return them home. Well then.
+
+<img src="https://imgur.com/NdFyM2d.png" alt="trek">
+
+They confront Arturis. He's like 'oh it was a setup by Seven! She's been against you getting home this entire time!" And even with all the antagonistic Seven stuff this episode... no one turns on her. And it call comes out. He captures Janeway and Seven and speeds along in his slipstream ship, and explains. His species had been eluding the Borg for centuries, but finally they overwhelmed them and most of his species are gone now. He doesn't blame THEM, they're basically a force of nature. He DOES blame Voyager. They made a deal with the Borg and stopped them from being obliterated by Species 6969. So in his grief, he set this up to capture them all and take them to his homeworld so they'll be assimilated.
+
+Seven and Janeway have a nice moment where they basically make peace, after an entire season of butting heads. If I was in charge of his show we know EXACTLY how it would end. With sloppy makeouts. Sadly, I am not God. Anyways, they manage to get close to stopping Arturis, but he blows up his controls and makes it so now the ship can NOT be stopped before it reaches Borg Space. Buuuuut, then VOYAGER SHOWS UP! They made their OWN slipstream drive and chased after them! They save Seven and JAneway, and Arturis is off to be assimilated, I guess.
+
+They don't think they can risk using hte Slipstream again, it's too dangerous. But now Seven is WITH them. She's been there for a year now, but now, she's with them. She's working on a way to get the Slipstream drive to work again.
+
+Good episode, great Seven and Janeway moments. And a great end to a surprisingly good season.
