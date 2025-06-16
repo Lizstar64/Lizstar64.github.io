@@ -147,10 +147,10 @@ The creature won't let Janeway go though, and almost kills her, but she convince
 
 
 
-**The Haunting of Deck Twelve** - VOY
+**Unimatrix Zero** - VOY
 6/10
 
-<img src="https://imgur.com/0r5GCuU.png" alt="trek">
+<img src="https://imgur.com/n1yRfwl.png" alt="trek">
 
 We start with the Borg Queen harassing some drone and being overly evil mustache twirlingly villainy about dismantling him because he has a disease. I really, really dislike the Borg Queen. Always have. They needed a villain for people to latch onto but she makes NO sense for the Borg and she's SO human-y in her evilness, like, she's NOT Borg, at all. It's annoying. She even uses contractions! What kind of a Borg uses contractions?!
 
