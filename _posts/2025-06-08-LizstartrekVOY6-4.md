@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 5 episodes 15-20
+title: LizstarTrek - Voyager Season 6 episodes 15-20
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Voyager, Reviews]
