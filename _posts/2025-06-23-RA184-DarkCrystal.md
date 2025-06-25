@@ -7,7 +7,7 @@ tags: [Retro Achievements, Apple II, Obscure Games, Sierra, Reviews]
 ---
 
 
-![Game](https://imgur.com/qoPCT7u.png){: .center-block :}
+![Game](https://imgur.com/bZJxH0i.png){: .center-block :}
 
 Continuing our Apple II text adventure playthroughs, we have another game by Sierra, this one coming out two years later. It uses much of the same system as Cranston Manor, it's a text adventure with an image at the top. The main differences here are that it's a property you know about, and the art is a LOT better. But still not great.
 
