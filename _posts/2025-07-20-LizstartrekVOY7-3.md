@@ -7,7 +7,7 @@ tags: [Star Trek, Voyager, Reviews]
 ---
 
 
-<img src="https://imgur.com/ammeBQI.png" alt="trek">
+<img src="https://imgur.com/gTdu2UR.png" alt="trek">
 
 Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you're curious about a nerd's views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I've watched some Star Trek before but not all of it!
 
@@ -53,7 +53,7 @@ For a Chakotay centric episode, I liked it. He wasn't bad, just... neutral.
 
 <img src="https://imgur.com/ammeBQI.png" alt="trek">
 
-That fucking image, jesus.
+That fucking image, jesus. EDIT: This was a CGI baby that was apparently too horrifying for even Imgur. Wow.
 
 Torres is happy and friendly this morning. That's weird, I don't like it, something's wrong. But then she stumbles, and Icheb scans her and is like "omg another lifesign, SHE HAS A PARASITE". Seven looks at the scans and then is like "Nope, she's just pregnant". Hell of a way to find that out, holy moly.
 
