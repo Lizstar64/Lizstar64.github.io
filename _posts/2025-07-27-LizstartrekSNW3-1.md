@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 7 episode 1
+title: LizstarTrek - Voyager Season 7 episodes 1 - 2
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
@@ -53,3 +53,40 @@ Batel is saved, Spock and Chapel have a moment of acceptance, and the Enterprise
 I thought it was alright! Not blowing me away, but good! Excited for more.
 
 I'll be editing this page every week and reposting it with the new episodes as they come out =w=
+
+
+
+**Wedding Bell Blues** - VOY
+8/10
+
+<img src="https://imgur.com/9FnKzZH.png" alt="trek">
+
+It's 3 months after the nightmare of the last two episodes, and the Enterprise is repaired and ready! Everyone is going to a gala to try and relax! I'm sure this'll go exactly as expected! To try and get into the spirit, and to practice for getting things going well with Nurse Chapel, Spock is practicing dancing with La'an.
+
+<img src="https://imgur.com/Yol3Cdf.png" alt="trek">
+
+BUT NOT A BRAIN! :D
+
+Anyways, Chapel comes on board with the doctor she's been working with for three months, Roger Korby. He's a very friendly guy, but a bit eccentric. Anyways Spock almost makes an ass out of himself before we find out Korby is, in fact, dating Chapel now. Whoops!
+
+<img src="https://imgur.com/AkPLZfu.png" alt="trek">
+
+Holy HELL, Uhura's outfit is on point.
+
+Ortegas is doing better. Physically, at least. We meet her brother, who is flirting a bit with Uhura, who seems reticent. Ortegas isn't into it, though. 
+
+Everyone gets together to drink a bit. Spock is, as usual, awkward. He steps away for a drink at the bar, and we get this like, weird Mxptlk mother fucker who's tending bar. He appears as a Vulcan to Spock, but to us, he's a weird mother fucker. He gives Spock a drink, who...  wakes up later that night next to Chapel. They're getting married! Oh boy! I'm sure Chapel will handle this very well!
+
+This Mxptlk ass dude is basically acting as wedding planner and getting everything all right and dandy. Is he a... shipper? Of Nurse and Spock?? I will say, over all, I haven't really... been into the Chapel and Spock thing? It's not JUST cause I know it won't go anywhere, but also cause of how they just... don't go together lmfao which I think this episode is doing its best to try and show.
+
+Korby is the ONLY person who seems to realize something is wrong. He can remember things how they SHOULD be, and is trying to subtly sabatoge the wedding. Spock catches him, and he explains that this is all wrong. Spock punches him out, but then for some reason remembers that yes, this IS wrong, and... well yes, feels bad, but most importantly is like "this needs to be fixed". He and Korby work together, they're both smart science boys, and though they love the same woman, they have to work together to figure out what's wrong.
+
+<img src="https://imgur.com/3XmlT3E.png" alt="trek">
+
+It's kinda fun to watch these two try and wander around a changed reality, testing at the waters and touching the boundaries to find where they are. Spock tries to get others to realize something is wrong. He tries to get Kirk to punch him. He insults his mustache. It doesn't work.
+
+When they confront the Wedding Planner about this, he reveals he's a giant fucking baby and this is all a game to him, which they'll have to play, or he will wipe everyone from existence. Welp. Korby and Spock change up their plan and yeah, the only thing they can possibly do now really, is try to go along with it. When Korby DOES act up, he's turned into a dog, and no one else seems to care. They're really just his puppets.
+
+<img src="https://imgur.com/JsdWJEP.png" alt="trek">
+
+Eventually Chapel snaps out of it too, thanks to Spock, and when the Wedding Planner announces everyone is going to die. But he's interrupted by his... dad. Who is, in fact, played by John de Lancie. Hmm. The bartender is just a kid, and he's made to clean up his toys. Everyone is like "WELL THAT WAS WEIRD" and then tries to celebrate the actual reason they're there, the Cenntenial. La'an dances with Spock, who has no regrets. We have one of the three armed aliens from TAS, who joins the crew as their bartender, yay! Aaaaand Ortegas has a PTSD episode. Yay!
