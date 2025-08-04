@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Voyager Season 7 episodes 1 - 2
+title: LizstarTrek - Strange New Worlds Season 7 episodes 1 - 3
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
@@ -90,3 +90,45 @@ When they confront the Wedding Planner about this, he reveals he's a giant fucki
 <img src="https://imgur.com/JsdWJEP.png" alt="trek">
 
 Eventually Chapel snaps out of it too, thanks to Spock, and when the Wedding Planner announces everyone is going to die. But he's interrupted by his... dad. Who is, in fact, played by John de Lancie. Hmm. The bartender is just a kid, and he's made to clean up his toys. Everyone is like "WELL THAT WAS WEIRD" and then tries to celebrate the actual reason they're there, the Cenntenial. La'an dances with Spock, who has no regrets. We have one of the three armed aliens from TAS, who joins the crew as their bartender, yay! Aaaaand Ortegas has a PTSD episode. Yay!
+
+
+
+**Shuttle to Kenfori** - VOY
+7.5/10
+
+<img src="https://imgur.com/uMeF8wz.png" alt="trek">
+
+Somehow, the Gorn Tissue has returned. Patel is still sick cause of Gorn, but they think they have a way that can fix it. It takes a flower, but it can only be found in a no-fly zone that would cause a Klingon War if they went to it. So Pike does an off the books mission, setting himself up as the person who'd take the fall if it goes bad. Mbenga goes with him, cause y'know, it's a medical thing. It'd be a good idea to bring a Klingon War Vet to this possible Klingon area~ And on the way they get a warning beacon of "GO BACK OR DIE", which is weird to have on a planet where no one's supposed to be there.
+
+There are no life signs on the planet. It's a jungle, but no animals, at all. And they find a corpse that probably died after the evacuation. Welp, it's Aliens time or some shit.
+
+<img src="https://imgur.com/vZ8WhBe.png" alt="trek">
+
+While going through an old building and gathering their flowers, a Klingon shuttle (the first in the series? At least that I've seen) comes and blows their ship up. Now they're being hunted by some Klingons, oh boy! It's two guys and a woman who appears to be in charge.
+
+
+The Klingons get them, but then they're attacked by... zombies. Just, straight up zombies. They eat a Klingon alive. Jesus CHRIST. I dunno if we've ever seen ANYTHING like this in Trek? It's now a fucking zombie horror movie. By the way, this planet, Ken Fori, is named after Ken Foree, the lead actor in Day of the Dead.
+
+Back on the Enterprise, they plan how to rescue their crew. Still radio silence, they dunno what happened, they just haven't heard anything from the ground team, so they go after them with a very slow, but safe tactic. Ortegas is VERY unhappy about this and pretty insubordinate. La'an is worried about her health, which we know isn't doing very well.
+
+<img src="https://imgur.com/XiJNsUb.png" alt="trek">
+
+So this flower causes genomes to like, fuse, basically. Hybridize people into different things. They tried to use it on a moss that could grow anywhere to make a super food. It accidentally hybridized with corpses and now there are zombies. Mbenga refuses to call them Zombies. Pike keeps using the "Z" word. And now that he knows what the Chimera Flower does, he knows that it'll turn her into a Gorn hybrid. He is NOT happy about this, but it was her decision, and is the only way anyone knows to save her.
+
+They get chased by more Zombies, and find themselves with the Klingon girl behind a force field. She stabs Pike, and we find out that she's the daugher of Dak'Rah. Remember him? He was the dude from last season who was a straight up war criminal who was trying to act like he had changed, and was killed by M'Benga in a scene where it's not clear exactly what happened, if it was self defense or not. Now it's coming back to bite him. She hated him so it's no problem there, but she's sure that if SHE had killed him, she would have brought honor back to her house, and now she has to kill his assassin. And M'Benga admits that he intentionally killed Dak'Rah, it was NOT self defense.
+
+We get PTSD War Hero M'Benga again.
+
+<img src="https://imgur.com/8tXJNvH.png" alt="trek">
+
+We get a fight scene between M'Benga and this Klingon, fighting with D'ktaghs. In the fight, they damage the force field generator, which is probably not good. M'Benga then wins the fight and chooses not to kill her, which is maybe the rudest thing you can do to a Klingon. So she chooses an honorable death by sacrificing herself. No one will know, but she will. And so with M'Benga, who respects the choice.
+
+Some good flying by Ortegas gets them to save the away team, though Una is VERY unhappy with how Ortegas has been acting. And now Pike has to decide whether or not to turn M'Benga for doing a murder. But luckily, M'Benga only told a story to save Pike's life when there was a knife to his throat, so, y'know, checks out.
+
+Uh oh. Ortegas intentionally did a bad job so they'd do her idea instead. It was unneccesary, because Pike and M'Benga were going to get on a shuttle anyway and would be safe, and she endangered everyone. So she gets a slap on a wrist, but a "please do not EVER do this again".
+
+<img src="https://imgur.com/p5tW9bd.png" alt="trek">
+
+Patel and Pike have a heart to heart about it. He's like "why didn't you tell me?" "Because it wasn't about you, and we both know if I did tell you, you'd tell me not to do it and find another way even though there is no other way". Which y'know, he did. On the planet. So she's right. And then it just... ends. I guess we'll find out next week how it goes!
+
+This one was uh... fine. I dunno how much we needed zombies in Star Trek but that's fine. Fun Klingon fight!
