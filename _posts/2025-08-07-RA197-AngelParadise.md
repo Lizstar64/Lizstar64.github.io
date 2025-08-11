@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Retro Achievement Mastery 197 - Angel Paradise Vol. 1 - Sakaki Yuko - Koi no Yokan in Hollywood 
-subtitle: Possibly the best randomizer challenge?
+subtitle: Hot Girls Sells I guess
 categories: RAMastery
 tags: [Retro Achievements, GBA, Retro Games, Final Fantasy, Reviews]
 ---

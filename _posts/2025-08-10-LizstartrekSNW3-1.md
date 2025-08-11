@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Strange New Worlds Season 7 episodes 1 - 3
+title: LizstarTrek - Strange New Worlds Season 7 episodes 1 - 5
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
@@ -132,3 +132,60 @@ Uh oh. Ortegas intentionally did a bad job so they'd do her idea instead. It was
 Patel and Pike have a heart to heart about it. He's like "why didn't you tell me?" "Because it wasn't about you, and we both know if I did tell you, you'd tell me not to do it and find another way even though there is no other way". Which y'know, he did. On the planet. So she's right. And then it just... ends. I guess we'll find out next week how it goes!
 
 This one was uh... fine. I dunno how much we needed zombies in Star Trek but that's fine. Fun Klingon fight!
+
+
+
+
+
+**A Space Adventure Hour** - VOY
+9.5/10
+
+<img src="https://imgur.com/62SIAKV.png" alt="trek">
+
+Ohhhh no, those outfits. Holy SHIT, La'an is on point.
+
+So, I've not been enjoying this season as much so far. But I'll stick with it, maybe it'll get better! Anyways this episode starts with one of the best scenes I've ever seen.
+
+<img src="https://imgur.com/P7kebx2.png" alt="trek">
+
+We get Kirk's actor, Chapel's actress, and Ortegas' actress doing some... kind of thing here. It's obviously a pastiche of TOS. Though I WISH TOS looked and acted like this. It's got a lot of really like, Dr. Who style models and special effects, and it feels more like an adventure serial of like, the 40s. But Kirk's actor is here doing an EXTREMELY good Shatner impersonation. The intro is for this Space Adventure show, and it's great.
+
+Anyways back to actual Star Trek. The Federation is developing a new kind of technology. It's for entertainment on long-term space exploration voyages. It's called The Holodeck. THIS MEANS THIS IS THE CANONICAL FIRST HOLODECK GOES WRONG EPISODE? YAY! Pike gives testing to La'an and tells her to push it as HARD as she can.
+
+We get more La'an and Spock dancing, as Spock seems to be continuing dance training. He's ABSOLUTELY, CLEARLY making moves on her. I was not expecting Spock to be the horndog of SNW? I don't HATE the idea, though this is maybe better. La'an is one of the characters we don't know what happens to after this, clearly Chapel and Spock aren't dating in TOS era, soooo, this works better.
+
+La'an decides to give the computer a challenge. She really loves detective novels, and asks it to...
+
+<img src="https://imgur.com/iXIxKLc.png" alt="trek">
+
+LA'AN, NO! THIS IS HOW WE GET MORIARITIES!!!
+
+You KNOW they did this on purpose to get this reaction. We've been here before!! This is a good style of "We've been here before" though. It's not retreading it in a boring way, but it's an exciting idea we've had before that lights up your day.
+
+We get a murder mystery story with La'an investigating the murder of a TV executive. The show he was in charge of was getting cancelled and someone in the room murdered him, so she has to go through all the suspects. Everyone is played by Trek actors, because canonically the best source of high def recordings they have are transporter buffer scans, so they go with those. The show was, of course, the shitty Trek pastiche from earlier. We watch as La'an solves the case (it's Una, who's the exec's ex-wife) but the game changes the rules and ups the difficulty, killing her basically. La'an decides she needs help to put this story to its end, and enlists Spock. Oh boy, pushing THAT ship still. Also all the acting here is top notch.
+
+Meanwhile energy is fluctuating on the Enterprise and poor Scotty is running overtime to fix it.
+
+There's some themes in the investigation. Emotions and romance getting in the way of things. Huh, funny that. Anyways La'an is almost killed in a trap set by the murderer, aaand is actually injured. Whoops, the holodeck is malfunctioning! Who could see THAT coming?! :D Scotty is already on it, but it seems the only way to fix it is if La'an solves the case from the inside.
+
+<img src="https://imgur.com/w6ry2wT.png" alt="trek">
+
+They give Uhura's character a speech about how important Trek COULD be. It shows the lense of people's lives through rubber masks and science fiction. It can inspired generations of kids! That's wonderful that they gave this speech to her of all people.
+
+The stakes are raised as the Enterprise is about to be destroyed by some radiation that's coming their way, and they don't have the energy to dodge it. Gotta solve stuff fast!
+
+The solution to the murder mystery is actually a really fun twist. I won't spoil it.
+
+La'an's assessment is that the Holodeck is NOT a good idea for starships to have installed on at this time. Scotty asks for a footnote to be added that maybe if they fix the energy problems. Pike wants it buried in a box in a basement somewhere. Then Una is like "Scotty why the FUCK didn't you ask any of the rest of us to help you??? We could have died" and the answer is PTSD. Una's job now is to try and wrangle PTSD addled kids on this fucking starship. 
+
+<img src="https://imgur.com/860zCki.png" alt="trek">
+
+We get one last dance scene and Spock and La'an and they kiss, of course. This is the third woman Spock has made out with in three seasons. Down, boy.
+
+But that's less important than THIS: 
+
+<img src="https://imgur.com/xqdvmxK.png" alt="trek">
+
+CHEESY TOS ERA BLOOPER REEL!
+
+This episode was just loads of fun. Okay, good. We can still do stuff I absolutely love.
