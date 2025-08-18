@@ -1,7 +1,7 @@
 ---
 layout: post
-title: LizstarTrek - TNG Movies
-subtitle: ...Not NEARLY as good as the TOS movies.
+title: LizstarTrek - JJ Trek Movies
+subtitle: 2000s action shlock from a man who only wanted to make Star Wars movies
 categories: LizstarTrek
 tags: [Star Trek, JJTrek, Movies, Reviews]
 ---
