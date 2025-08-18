@@ -7,3 +7,7 @@ source "https://rubygems.org"
 gem "jekyll"
 
 gem "jekyll-theme-yat"
+
+gem "csv"
+
+gem "base64"

@@ -81,7 +81,7 @@ This episode was whatever. Just, fine. Neli described it as "trying to do Fereng
 
 
 **Endgame** - VOY
-5/10
+6.5/10
 
 <img src="https://imgur.com/sxtUWkkf.png" alt="trek">
 

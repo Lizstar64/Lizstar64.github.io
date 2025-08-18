@@ -11,6 +11,8 @@ Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my rev
 
 Note: This isn't complete yet! We've only seen three of the movies. We're holding Nemesis off until after Voyager is done.
 
+EDIT: WE'RE FINALLY WATCHING NEMESIS, HOLY HELL THIS WAS LIKE 2 YEARS AGO. Nemesis review is tacked onto the end!
+
 ---
 
 
@@ -276,3 +278,133 @@ The Son'a 2nd in command reunites with his mom, and all's well that ends well. T
 Movie over, GG.
 
 Maybe it's cause I hated the last two so much, but this was pretty good? Good crew moments, good quips, maybe a little too much jokes, but still very enjoyable. It's like, on par with Star Trek 3. A fine movie. Pretty Trekky. Very inconsequential to the plot of the series as a whole, but eh, whatcha gonna do. Not their fault they kept bringing back the Borg Queen instead of the Son'a.
+
+
+
+**Star Trek: Nemesis** - 6/10
+
+<img src="https://imgur.com/v9iTr64.png" alt="trek">
+
+We're FINALLY watching Nemesis! It takes place directly after Voyager is done, so we had to wait for Voyager to be done. This, to me, ends the 90s era, even if it came out in 2002. Here we go.
+
+We start with some Romulan military people making a proposal to the senate, which is rejected. A senator steps out over this, and I'm like "oh shit we about to get a coup". We do in fact get a coup, a thing she left behind very conspicuously, which she had been playing with, opens up and creates water droplets. These water droplets cause the Romulan senators dry up violently and painfully and they turn to stone and shatter against the  ground as they fall. If I saw this as a kid it would have given me nightmares. Reminded me of the Tuxedo, the only movie I've ever seen.
+
+<img src="https://imgur.com/0UMGVca.png" alt="trek">
+
+When did Star Trek get so woke?
+
+Troi and Riker are married now! They're gonna be going to a ship called the Titan for this, and Picard is sad but also happy. This is very funny considering the finale of season 3, like 10 years before this, where he went "what the fuck are you still doing here, Will". Also, Worf is here. He's just a part of the crew still. It's not explained. It was barely explained in Insurrection but it's even LESS explained here, he's just here for the ride. I mean obviously he'd be here for the wedding, but ah.
+
+While heading to Betazed to deliver the newlyweds, they're pulled off course by a strange reading. Positronic readings, some kind of Data Brainmeats on a remote planet.
+
+<img src="https://imgur.com/TnJh9oE.png" alt="trek">
+
+One of the stipulations Picard had for being in this movie was that he demanded to drive a dunebuggy. This is a little silly but that's okay, I don't mind too much. Patrick Stewart looks so happy to drive it.
+
+That happiness is cut out pretty quickly as they find the causes of the positronic signals. Some data-like body parts, strewn about. An arm. A leg. And finally, a head. It seems like Data's head, who responds with a "fascinating". Then suddenly it becomes a mad max movie as some natives of the planet come at them with buggies and machine guns. It's a turret vehicle section, in my Star Trek. I never much liked how the TNG movies try to be like, action movies.
+
+They escape, and that's it. The action sequence means nothing to the rest of the story. They reassemble this Data, find he's some kind of prototype named B-4. He doesn't know why he's there, but he's friendly enough.
+
+<img src="https://imgur.com/EZNkqz1.png" alt="trek">
+
+Say hello to the reason we waited like 2 years to watch this movie. A fucking cameo. She's here to tell them to go to Romulus. She's an admiral now which is cool. And then we'll never see her again... until Prodigy! :D Bye, Janeway!
+
+They're sent to Romulus. Troi and Riker are still here, I guess. Apparently a "Reman" is now the praetor, which seems to be an underclass in their society. A slave class. Seems to be a coup of some kind, possibly military coup? Also at the same with they download Data's... data into B-4. As they sit over Romulus, they're kept waiting for a long-ass time, but eventually a dangerous looking ship appears and gives them transport coordinates, and we go to meet Shinzon, the new leader of Romulus.
+
+<img src="https://imgur.com/X7iWbET.png" alt="trek">
+
+Shinzon is a creepy little fucker. He's "never seen a Human woman" and wants to touch Troi's hair. But he's also offering peace with the Federation, which is nice. But he's also shrouded in darkness. And also obviously a Human. Not Romulan, OR Reman. He's a bald little fucker, and he also has a lot of... similarities as Picard. And he's NOT subtle about this. "Come to dinner, just the two of us. Or should I say, just the one of us". He cuts his fucking hand and gives the blood to them, and is a weird little mother fucker.
+
+Sure enough, yes, he's Picard's clone, according to the blood. Also he's played by Tom Hardy pretending to be a young Patrick Stewart, which isn't 1 to 1, but it's better than some CGI monstrocity. Also, his viceroy, a Reman, is played by Ron Perlman doing a growly voice in heavy makeup. Man, Ron Perlman will do whatever, won't he?
+
+We also see Shinzon talking to his advisors. A Romulan commander is a little shit about the whole thing, confused why the hell the Enterprise is here, and why aren't they nuking the Federation yet, he just really wants to see some Federation people die, please, just this once. Shinzon tells him to fuck off. And the other commander is the girl who did the assassinations of the senate, and she tries seducing him, but he's fucking disgusted by it, and claims "You are not a woman, you are a romulan". Yay racism? Shinzon DOES mention something about "Romulan lashes" so clearly he has history.
+
+At the dinner date with Picard, he explains. He was a clone which the Romulans made, considered a failure, and threw in the Reman dilithium mines cause fuck it who cares. The Remans took pity on him and treated him as a brother. He's here now to be like "We should ally and be friends! I want peace!" Man, I'm so glad this movie is going to immediately end with no problems at all and we all become friends :D No obviously not. Picard goes "yes I'd love to be friends but we'll need to make sure y'all are actually good for it first" and leaves. And of course shit isn't all above board, it's pretty obviously. Someone has apparently hacked into their computers, and there's some very deadly radiation that they've found scans of.
+
+<img src="https://imgur.com/EpdhYto.png" alt="trek">
+
+One of the things I knew about this movie was that it had a very troubled production, and they cut out a lot of scenes. Like, a lot. Way too many. But then why the FUCK did they leave THIS in??? Troi has sex with Riker, but then he turns into Shinzon who appears to be sexually assaulting her through psychic stuff???? I dunno. Like... it's so bad and all out of nowhere. And does not matter to anything, just... wow look at how evil this guy is he mind raped Deanna. We already saw him do a political coup, killing dozens, and is planning some evil shit, we did NOT need this too.
+
+Suddenly Picard is kidnapped, and B-4 is with him! Shenzon explains that as long as Picard lives, he's nothing but his shadow. That... that comes out of nowhere, for being his main driving force? Like, I like the stuff about him viewing himself as Reman culturally, not a Human, and not Romulan. It's a Nature VS Nuture argument, and that's cool. But "I can't live as long as you do"? That doesn't make any sense to me. Like obviously he's not 100% mentally stable. But I don't find that super compelling unless it's like, over the top? And he can't be the dashing brilliant foil to Picard who outsmarts him at every turn while also being coo coo bananas with flawed logic and reasoning.
+
+<img src="https://imgur.com/tqBofQX.png" alt="trek">
+
+Data was B-4, take a drink! Yes, they actually saw this COMING and replaced B-4 with Data! Now Data and Picard gotta break out of the ship. They actually have a teleportation thingy but it'll only work for one person. It turn turns into an action movie again, Picard dual wielding phaser pistols and shooting down a bunch of random guards. Okay, again, I don't like how they tried make TNG action movies, but this is SO much better than it was in First Contact, with Picard screaming as he fired a tommy gun. I still don't think we needed to try and make Star Trek into Star Wars, but if we have to, this is as good as we can do, honestly.
+
+Data and Picard break out with another action scene, using a shuttle they steal to blast down some tunnels in this giant ship they're in, like it's fucking Descent. Again, pretty okay actually. They make it back and warp the fuck out, with Shinzon planning to chase.
+
+There's a scene where Data deactivates B-4 because he's dangerous. It's pretty sad tbh. Poor B-4. He doesn't understand what's going on. We also learn Shinzon is apparently dying due to Clone-itis. Okay, NOW the cloning blues makes some more sense.
+
+They determine that he has a radiation weapon that can destroy Earth, the same radiation that did the Tuxedo stuff from the start that freaked me the hell out. So they prepare for battle and go to meet some of the Federation for backup. Also there's a scene with Data and Picard, Picard going "He's what I could have become, he is me" and Data is like "No sir, that's stupid". I guess it's the thesis of the movie. Needed a bit more than a one and a half minute scene.
+
+Shinzon's ship easily disables the Enterprise and then Shinzon sets up a hologram in Picard's ready room. Hey, remember when we were trying to make this technology a thing for like 8 episodes? Still dunno why we just kept wanting to make TNG Star Wars.
+
+<img src="https://imgur.com/5YrLllp.png" alt="trek">
+
+This is actually a good scene tbh. Picard tries to petition to Shinzon's morality, and say "you can be better than this, you can grow as a person" and he eventually rejects it. He is what his life has made of him. And he has to do this. And once he does, Picard will be nothing in the end but a dim memory, as his name echoes through history. It's a good scene. And it's nice to see Picard actually do speeches, you know, the thing he's good at.
+
+Shit seems bad, but the Romulans from earlier who were working with Shinzon show up and go "yeah fuck this guy, let's kill him together". Temporary alliance maybe (they literally did this so that they could destroy the Federation), but alliance nonetheless.
+
+<img src="https://imgur.com/H9tfA7C.png" alt="trek">
+
+We get a pretty neat fight, which we lose, pretty heavily Our allies don't DIE but are dead in the water quite fast. Though clearly Shinzon is struggling with his clone-itis.
+
+<img src="https://imgur.com/h3sw1Fl.png" alt="trek">
+
+The sexual assault scene from earlier comes back, unfortunately, but Troi gets her revenge, using the psychic link that Shinzon's viceroy made with her to allow him to sexually assault her to control him just long enough so they could hit them where it hurts. She even does a "Remember me?" line. Hell yeah, I love Metroid Other M (I do not, actually). Also hey, return of the eye-lighting from TOS. Always a cool effect.
+
+<img src="https://imgur.com/nsWZ5LU.png" alt="trek">
+
+They lose. Shinzon has them dead to rights. They're floating in space, all weapons dead, basically, and there's a hole in their fucking view finger. Several people are dead, and Troi has to fly the ship now. Shinzon is sure, because he's Picard after all, that Picard would surrender and save his crew. He does not. He flies the fucking Enterprise DIRECTLY into Shinzon's ship. People love to point to this scene as "hurr hurr Troi is woman who can't drive". Bitch, she was told to do this.
+
+It's a cool scene ngl. They seem to do a LOT more damage to Shinron's ship than he does to them.
+
+<img src="https://imgur.com/obqh8hR.png" alt="trek">
+
+Meanwhile, Riker is fighting the Viceroy, Shinzon's 2nd in command, who tried to physically take the Enterprise. Their fight goes to.... I don't even know. It's a giant vertical shaft with a rickety-ass bridge over it. It breaks, and Riker holds on for dear life as the Viceroy falls miles down into... again, I dunno. Where the fuck is this?! Did Cetacean Ops fucking drain??? This is the silliest thing in this fucking movie.
+
+Both ships are basically dead, so Shinron decides he doesn't NEED to live after all. His body is basically becoming mouldy cheese at this point. He's going to send out the radiaton and kill all of them, then fly to Earth, while dying, and blow it up. Their mission WILL succeed even if he doesn't live to see it.
+
+<img src="https://imgur.com/DK5Ccp3.png" alt="trek">
+
+Picard beams over to fight Shinzon one on one. It's a suicide mission. Teleporters immediately go offline after that, of course. But Data is having one of it... He THROWS himself out of the fucking Enterprise through one of the open holes in the walls and flies towards Shinzon's ship in a scene I probably should not be laughing at but absolutely am.
+
+Picard kills all of Shinzon's guards and assistants, but refuses to kill him, and they struggle. He has a gun, but he won't shoot Shinzon. Well of course. You wouldn't expect Picard to KILL people, would you??? *glances over at all the fucking corpses surrounding Picard*
+
+I guess if he did we wouldn't get a cool climactic final fight but come on, Picard.
+
+<img src="https://imgur.com/SaUkKQd.png" alt="trek">
+
+Shinzon impales himself, then DRAGS HIMSELF on the pole towards Picard, staring at him and grabbing him. Picard doesn't like, leave in order to stop the radiation. Or do anything. He just stands there in shock for some fucking reason. Picard, my mans... wh- why? Why??? You've killed before, you'll kill again, and you didn't care about killing all those random people, but now that your evil clone has impaled himself you FREEZE UP??? Data comes in, teleports Picard off with his little tleporter button that he mentioned earlier, and then blows up the ship, saving everyone but sacrificing himself. Rest in peace, Data.
+
+It's okay, I can see his parachute. He literally set up his parachute earlier in the fucking movie.
+
+<img src="https://imgur.com/TklwWXT.png" alt="trek">
+
+Everyone drinks to Data. Riker starts the ceremonies of talking about the positives about Data. It feels awkward, like no one wants to hear it.
+
+We get a scene with Riker FINALLY leaving the ship, as was set up this entire time. He's leading a task force to make an alliance with the Romulans.
+
+<img src="https://imgur.com/8kQhCd2.png" alt="trek">
+
+Picard reactivates B-4, who again, had Data's memories downloaded into him earlier, but it didn't seem to work. B-4 isn't Data. But some parts of him are starting to come back through. Yep, we're ALREADY getting the replacement Data set up. I guess we'll see that in Picard, huh? And then the movie ends!
+
+Also, we watched some deleted scenes. All of these were deleted for reasons we cannot possibly understand. Like, it was a very long movie sure, but apparently Berman just said "fuck this we need to make the movie make less sense".
+
+We get a scene with Wesley Crusher, who WAS in the movie as a cameo, but here he's like "Yeah I'm excited to serve on the Titan :D." WHAT? WTF??? He QUIT Starfleet and is now a fucking God, why would he serve on the Titan?! Okay, THAT scene can be removed, sure.
+
+The next deleted scene is Picard talking to Data about why he's happy AND sad that so many people are leaving the Enterprise. About how they're like his children, and he's seeing them grow up. It's a good scene and helps set up the themes of the movie. But we had to keep the Troi scene in, so it could set up a scene later that didn't actually do anything :)
+
+There's also a scene where they introduces Shinzon's assistants earlier, alongside Shinzon. They removed it so that the scene with Shinzon being shrouded in shadow hits harder. I guess that makes sense.
+
+Another scene with Riker and Troi talking with Worf about their happy honeymoon plans. Removing this means Worf only had like 7 lines in the movie. We also see Data teaching B-4 to eat. This scene can also go, that's fine. Though I do love Brent Spiner.
+
+Another Worf scene, one where he is racist against Romulans and gives in a suggestion which Picard ignores. We actually get a conclusion to this scene down the way with him going "the Romulans fought with honor". That seemed out of place tbh. This saved what, 40 seconds? Keep it in. Let Worf earn his pay.
+
+Most of the things they cut were just... more set ups for the themes of the movie. Unneccesary cuts.
+
+OH MY FUCKING CHRIST, THERE WERE TWO RAPES IN THIS MOVIE ORIGINALLY?! THEY ACTUALLY CUT ONE?! WHAT THE FUCK, RICK BERMAN?! WHAT THE FUCK?!?!
+
+One more deleted scene, showing the new First Officer who was replacing Riker. Riker tells him that Picard likes being called "Jean-Luc". It doesn't go over well. It's pretty funny, and would be a more pleasant ending than the ending we got which was like, kinda flat. They end the movie properly with a "where no one has gone before" and it's kinda nice tbh, with a glory shot of the Enteprrise. A fine final scene.
+
+Over all, the movie is fine. Lots of stupid decisions and weird moments but over all, it was entertaining enough, and actually had ideas and a theme to say rather than whatever the fuck the first two movies were saying. It's messy though. It has a lot of unneccesary stupid scenes and ideas for a movie that appears to be missing 25% of its fucking scenes that were shot for it. I do wish we had gotten a better TNG sendoff, but I'm not unhappy with this. It's fine.
