@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Retro Achievement Mastery 200 - Kids on Site
-subtitle: Solomon's Key, but Doable
+subtitle: Aw, nuts
 categories: RAMastery
 tags: [Retro Achievements, Sega CD, Obscure Games, Kids on Site, Reviews]
 ---
