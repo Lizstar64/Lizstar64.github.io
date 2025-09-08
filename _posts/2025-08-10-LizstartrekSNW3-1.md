@@ -15,7 +15,7 @@ This is the third season of SNW, finally coming out. We're gonna watch an episod
 
 
 
-**Hegemony Part 2** - VOY
+**Hegemony Part 2** - SNW
 6.5/10
 
 <img src="https://imgur.com/WEvb4AL.png" alt="trek">
@@ -56,7 +56,7 @@ I'll be editing this page every week and reposting it with the new episodes as t
 
 
 
-**Wedding Bell Blues** - VOY
+**Wedding Bell Blues** - SNW
 8/10
 
 <img src="https://imgur.com/9FnKzZH.png" alt="trek">
@@ -93,7 +93,7 @@ Eventually Chapel snaps out of it too, thanks to Spock, and when the Wedding Pla
 
 
 
-**Shuttle to Kenfori** - VOY
+**Shuttle to Kenfori** - SNW
 7.5/10
 
 <img src="https://imgur.com/uMeF8wz.png" alt="trek">
@@ -137,7 +137,7 @@ This one was uh... fine. I dunno how much we needed zombies in Star Trek but tha
 
 
 
-**A Space Adventure Hour** - VOY
+**A Space Adventure Hour** - SNW
 9.5/10
 
 <img src="https://imgur.com/62SIAKV.png" alt="trek">
