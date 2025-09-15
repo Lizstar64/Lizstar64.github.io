@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Enterprise Season 1 episodes 1 - 5
+title: LizstarTrek - Enterprise Season 1 episodes 1 - 4
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Enterprise, Reviews]

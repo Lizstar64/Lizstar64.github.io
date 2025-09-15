@@ -1817,10 +1817,6 @@
 <lastmod>2025-09-07T00:00:00-04:00</lastmod>
 </url>
 <url>
-<loc>http://localhost:4000/lizstartrek/2025/09/07/LizstartrekSNW3-2.html</loc>
-<lastmod>2025-09-07T00:00:00-04:00</lastmod>
-</url>
-<url>
 <loc>http://localhost:4000/oocy/2025/09/08/OOCY181.html</loc>
 <lastmod>2025-09-08T00:00:00-04:00</lastmod>
 </url>
@@ -1835,6 +1831,14 @@
 <url>
 <loc>http://localhost:4000/ramastery/2025/09/10/RA205-AmazingPenguin.html</loc>
 <lastmod>2025-09-10T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2025/09/14/LizstartrekEnt1-2.html</loc>
+<lastmod>2025-09-14T00:00:00-04:00</lastmod>
+</url>
+<url>
+<loc>http://localhost:4000/lizstartrek/2025/09/14/LizstartrekSNW3-2.html</loc>
+<lastmod>2025-09-14T00:00:00-04:00</lastmod>
 </url>
 <url>
 <loc>http://localhost:4000/about.html</loc>
