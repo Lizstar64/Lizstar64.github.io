@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Strange New Worlds Season 7 episode 6
+title: LizstarTrek - Strange New Worlds Season 3 episode 6-8
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
@@ -94,3 +94,41 @@ Spock manages to hit the aliens where they hurt and blow them upm just as the En
 We find out the Scavengers were Human. On the side of the ship, they find "XCV-100", which is a reference to a classic Ship concept. Apparently many years ago, some Humans built a ship to escape an environmental collapse of Earth. But then the ship disappeared, never to be heard from again. But how did they go from THAT, to whatever they became? It's not explained.
 
 I'm not really sure I like the ending all that much? The big twist? But the lessons Pike imparts to Kirk in the end are good, at least, and the action and jokes are good. It's like, a solid season 1 or 2 episode.
+
+
+**What is Starfleet** - SNW
+2/10
+
+<img src="https://imgur.com/hb6jfUp.png" alt="trek">
+
+So for the past season, we've seen Beto, Ortegas' brother, recording a documentary about Starfleet. And now this episode IS that documentary. We get to see this guy's documentary he made about what Starfleet is. And you know what? It kinda sucks.
+
+We'll see if, by the end of this, it's... intentional. But it feels like a first year film student trying to Do Something. To Say Something. But it's honestly stunning how bad the editing is. That HAS to be the intention, but I don't care if something is intentionally bad if it's bad to watch.
+
+<img src="https://imgur.com/ePXmjB1.png" alt="trek">
+
+It jumps between scenes with weird camera angles and bad shots. None of the scenes flow together, with the different members of the crew talking about random inane bullshit. Apparently we get a Spock Self Harm backstory. When he was a kid he tried to carve the human half out of him with a knife. Joy. Glad THAT'S canon now.
+
+<img src="https://imgur.com/J9er1s6.png" alt="trek">
+
+Whatever this thing is, it's pretty.
+
+We see them go do... something in some war. It's not super well explained. Every character feels weirdly out of character. I THINK that's the point? They're being misrepresented for some kid's school project. Pike is angry and lashing out about the cameras being around. M'Benga is represented as a violent shady war criminal. He tells Uhura her friend is dead, just so he can get her reaction on camera. Oh yeah, just ask your sister on camera, who's knee deep in PTSD, how her hand is doing after 3/5ths of it was dissolved in Gorn Goo. 
+
+Neli, the friend I watch these with, describes it as "them trying to do 'Faranheit 911'. A kind of shockcumentary that is so up its own ass and full of itself. Yeah.
+
+Also the camera shakes around so much this is so extremely hard to follow and hurts to look at. Beto is... bad at being a documentarian. I've said that a lot, but his camera work is ass, as ass as his editing. Why was THIS GUY given full open access to record anything on the flagship of the Federation?? It'd be like giving Uwe Boll unlimited access to do whatever he wants.
+
+<img src="https://imgur.com/sqdG641.png" alt="trek">
+
+Is he RECORDING PEOPLE WITHOUT THEIR KNOWLEDGE for this documentary??? I doubt that's legal in the Federation. At least it seems like everyone on this ship is kind of sick to death of Beto. Uhura tells him to fuck off after he asks her some self pretentious shit about colonizers. At least we know where THAT romance plot is going. I swear, if they STILL try to push a romance with them after this episode, it'll be even worse than the Worf x Dax bullshit.
+
+So there's some kinda plot about a society at war with another society, and they're doing some kind of project to make this giant space amoebas into beasts of war. The neural implant they're using is torturing it, and it breaks so it can't be controlled anymore, and it lashes out. They communicate with it telepathically, find out it can't control itself, and they help it commit suicide. That's the plot. Honestly, not terrible? I would have liked to watch a normal-ass Trek episode about it. Because the first half is whatever hte fuck was going on there, weird propaganda shit, and this second half is actually Trek-like and kinda okay, but it's COMPLETELY ruined because I was so extremely checked out. Also the editing and camera work are still fucking ass.
+
+And it just ends. Here's some comments from a video that put the ending out there clearly: 
+
+“The space moth killed itself and that was sad. But is war bad? Well at the end of the day: it is what it is. But most importantly: we are a family. The End” - robstein1313
+
+“Is Star Fleet a military colonizing force? I think the real Star Fleet is the friends we made along the way.” - CouncilofGeeks
+
+All of this was done to give character development to a character that I didn't really care about and thought was just a little annoying at best, and now I kind of hate him. And this episode.
