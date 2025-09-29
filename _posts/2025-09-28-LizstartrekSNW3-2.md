@@ -132,3 +132,34 @@ And it just ends. Here's some comments from a video that put the ending out ther
 “Is Star Fleet a military colonizing force? I think the real Star Fleet is the friends we made along the way.” - CouncilofGeeks
 
 All of this was done to give character development to a character that I didn't really care about and thought was just a little annoying at best, and now I kind of hate him. And this episode.
+
+
+
+**Four and a Half Vulcans** - SNW
+3/10
+
+<img src="https://imgur.com/04GBE4L.png" alt="trek">
+
+Something about this title feels insulting
+
+We've got more relationship troubles cause that's all this show does now. La'an is ALREADY making shit awkward with Spock, and Pike's girlfriend wants to get back to work, and needs Pike's help making her old boss happy about it. But before we can do ANYTHING like that, we have to do some shenanigans.
+
+<img src="https://imgur.com/gMfQRpe.png" alt="trek">
+
+There's a very flimsy reason that they need to do this, but they need to all become Vulcans through the reverse of that serum they gave Spock to make him Human for a bit. It doesn't work on Pelia, who continues to be the best character in this season. The serum makes them all extremely annoying and theyre IMMEDIATELY working overtime to be weirdly racist towards Spock for being a half Vulcan. They go down to do the job they had to do, do it super fast, and then dip back up. But oops, the Vulcan serum doesn't work and they can't turn back.
+
+Everyone is handling being a Vulcan Very Poorly. This is just badly written Vulcan things. Yes, logic can be used to justify bad things, like racism, or apparently in La'ans case BECOMING A SPACE CONQUERER? Yeah that's a thing. Yes, you could justify all that with logic. If you're a bad person who wants to come up with any reason to be bad you can do that. It's very easy! But these are not bad people. These are good people who want to do good things. But they are not now, because of bad writing.
+
+<img src="https://imgur.com/SPXpIT9.png" alt="trek">
+
+They decide to stay as Vulcans (though La'an is clearly actually a Romulan, which could be VERY bad), because it's so much better for everyone. Obviously. I say this is grounds for IMMEDIATELY locking them up and mutinying, but even Spock is like "maybe we should not do that", and he's being shafted so hard. All the Vulcans do horrible things, like Uhura LTERALLY brainwashes Beto. Hmm. They need help, so Una seeks help from her ex, Doug.
+
+<img src="https://imgur.com/CZKI7VS.png" alt="trek">
+
+This is Doug. He's a Vulcan who is fond of Human cultures and when he and Una are nearby each other they want to make out with each other violently. It's comedic in a way that does NOT fit. Doug agrees to help them connect with the Vulcan's katras, which they, no joke, do off screen. Just, cut to black, come back in, "Anyways we solved it". Are you shitting my dick????
+
+Only one person is resisting being brought back, and that's La'an. Spock talks to her inside her mind, and he straight up says "Your sadistic and untrusting and violent, that's because you are related to Khan". WE LITERALLY HAD AN EPISODE ABOUT THIS, ABOUT HOW BIO-ESSENTIALISM ISN'T REAL AND SHE CAME TO ACCEPT THAT PART OF HERSELF. BUT NOW NO, BIO ESSENTIALISM IS REAL. YOU'RE EVIL, LIKE ALL IN YOUR LINE.
+
+They fight, then dance, and then she goes "okay yes change me back". The rest of the episode is like 10 more minutes of everyone going "holy shit I'm so sorry for being awful" and then it ends. This episode kinda sucked. The writing was DRASTICALLY uneven. There were some fun moments and a lot of really bad ones.
+
+At the end though you have Spock giving Doug a How To Be A Human lesson and I kinda like that.
