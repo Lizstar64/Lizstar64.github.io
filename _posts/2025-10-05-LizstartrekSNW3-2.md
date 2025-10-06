@@ -163,3 +163,46 @@ Only one person is resisting being brought back, and that's La'an. Spock talks t
 They fight, then dance, and then she goes "okay yes change me back". The rest of the episode is like 10 more minutes of everyone going "holy shit I'm so sorry for being awful" and then it ends. This episode kinda sucked. The writing was DRASTICALLY uneven. There were some fun moments and a lot of really bad ones.
 
 At the end though you have Spock giving Doug a How To Be A Human lesson and I kinda like that.
+
+
+
+**Terrarium** - SNW
+7/10
+
+<img src="https://imgur.com/btQTDWc.png" alt="trek">
+
+This is something I've wanted since Strange New Worlds first came out. We're FINALLY getting it. An Ortegas central episode. Ortegas has always been around and good with snarking in the sidelines, but she's never gotten her own centric episode. Everyone else has gotten like, 3 each. So why am I worried?
+
+Because the writing has been pretty bad this season, AND they have this "Ortegas has PTSD" side plot. I can think of a MILLION ways they could fuck this up.
+
+Ortegas is sent out in a shuttle to do a simple solo mission to release a subspace relay, when suddenly a wormhole pops up RIGHT on top of her and she's sucked into it. Enterprise sees her disappear, with her last line being "I'VE GOT IT! I'VE GOT-". And then boom, she's gone. Damn, rest in peace, Ortegas.
+
+<img src="https://imgur.com/zFOXC4C.png" alt="trek">
+
+No, obviously not. She manages to release the buoy before crash landing. Her rations get burned up in the crash, I dunno why you'd put the rations next to the explodium. So she goes about preparing to survive on a hostile alien world.
+
+<img src="https://imgur.com/LoVVWiI.png" alt="trek">
+
+Okay, props to the writers of this so far. If you asked me how Ortegas would handle being stranded on an alien planet, it's EXACTLY this. She'd talk to herself a lot and be sassy. Honestly, they don't even need writers. Point a camera at a good actor and let her adlib for 45 minutes, and you've got an Ortegas episode. Fantastic. She's doin' shit like building a condensor and going "Hello Mr. Condensor, please Condense" like, I love it?
+
+Back on Enterprise, they gotta go meet Captain Decker of the Constellation soon so they don't have time to stick around for a rescue. If you don't remember, Decker is from the episode of TOS where they fight the Planet Eater. Or as I call it, The Windsock, and as I call him, The Windsock Guy. Uhura is DETERMINED to get Ortegas back, and fights for them to stay.
+
+<img src="https://imgur.com/dpfOrtm.png" alt="trek">
+
+Ortegas finds a Gorn living on the moon she's stranded on. At first it seems like they're gonna fight, but the Gorn is actually... not very aggressive? It kills something and gives Ortegas some of it. It's a disgusting bug, but hey, shockingly friendly Gorn. The Gorn is injured, though, and Ortegas obviously doesn't trust it, so she basically robs the Gorn and tries to run away back to her shelter. She sees a light in the sky, aaaand the shuttle falls into a sinkhole. Whoops. Ortegas is then attacked by more bugs, but is SAVED by the Gorn! New Gorn Best Friend :o
+
+<img src="https://imgur.com/QHOWVNj.png" alt="trek">
+
+Ortegas can't really communicate with the Gorn easily, but fashions a communicator that can give yes or nos, basically. The Gorn can actually understand her, because "you want to understand your enemy?" "Agree". The Gorn and Ortegas spend time getting to know one another. It's a girl Gorn, so it's "a couple of girls having a slumber party". Ortegas teaches her Chess, she teaches her some kind of game. They actually get along rather well. New Gorn GIRLFRIEND?!
+
+The Gorn is too injured, and if it's rescued, that's a death sentence. The Gorn blow up their own ships if they're too weak. Ortegas is like "Well, then come with us, and show my people that you're as wonderful as you showed me!" The Gorn doesn't seem very happy about that. All the while, Ortegas feels like she's being watched, and there's these weird lights in the sky. I think I know what's going on.
+
+<img src="https://imgur.com/qaesgzY.png" alt="trek">
+
+Ortegas and the Gorn work together, Ortegas convincing her to TRY and stay alive, and they have one wild plan. Light a GIANT explosion that'll hopefully alert Enterprise they're there and get them teleported out. Ortegas risks her life to light the flare, getting the attention of Enterprise... but also something else. And when Enterprise comes and immediately blasts the Gorn, killing it, Ortegas goes NUTS. Screaming out at whatever's watching her. And it's...
+
+<img src="https://imgur.com/rdScTg6.png" alt="trek">
+
+I FUCKING CALLED IT. The Metron is like "We need more data to determine if the Gorn and the Humans can ever find peace." AKA, Arena. The Metron says Ortegas isn't ready to meet them, erases her memories, and then they're sent back. And the Gorn? Still dead. Still very, very dead. Fucking god dammit. My Gorlnfriend >:(
+
+This was FANTASTIC until the bad feeling at the end. It's just a shaggy dog story. And the Metron being there actually doesn't add much, it prolly would have been better without it. Weirdly nostalgia bating for nothing to add to it. This WOULD have been a 9/10, maybe even higher, if they had stuck that landing. But right now it's just.... kinda anger enducing.
