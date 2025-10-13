@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Strange New Worlds Season 3 episode 6-9
+title: LizstarTrek - Strange New Worlds Season 3 episode 6-10
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
@@ -206,3 +206,62 @@ Ortegas and the Gorn work together, Ortegas convincing her to TRY and stay alive
 I FUCKING CALLED IT. The Metron is like "We need more data to determine if the Gorn and the Humans can ever find peace." AKA, Arena. The Metron says Ortegas isn't ready to meet them, erases her memories, and then they're sent back. And the Gorn? Still dead. Still very, very dead. Fucking god dammit. My Gorlnfriend >:(
 
 This was FANTASTIC until the bad feeling at the end. It's just a shaggy dog story. And the Metron being there actually doesn't add much, it prolly would have been better without it. Weirdly nostalgia bating for nothing to add to it. This WOULD have been a 9/10, maybe even higher, if they had stuck that landing. But right now it's just.... kinda anger enducing.
+
+
+
+**New Life and New Civilizations** - SNW
+3/10
+
+<img src="https://imgur.com/4cgRq8Z.png" alt="trek">
+
+We start with a party in Pike's quarters to celebrate Patel leaving the Enterprise. Everyone looks fantastic. Spock is just wearing his normal outfit though, and he's also hushing the buzz by talking about evil lizard bullshit at the party. Read the room, Spock.
+
+<img src="https://imgur.com/jwOVlP4.png" alt="trek">
+
+WHY IS ROGER KORBY ON FUCKING ZENDIKAR
+
+WHY IS ZENDIKAR CANON TO THE STAR TREK UNIVERSE
+
+Anyways Korby doing some kinda science thing on a place and it's interrupted by... GAMBLE! Dun dun dun! His pattern is taken out of the buffer which is a bit weird, considering his pattern wasn't put INTO it really, the pokeball was instead, but whatever. If you don't remember, Gamble was possessed by a Vezda, some ancient energy being. They all plan to go rescue Korby and figure out wtf is going on and stop the Vezda. Patel is going too, cause her Gorn DNA is making her go. As if the death flags weren't already raised. Everyone is getting in on this. Even **J Kirk**. Why? Because it's the finale, we need all the characters here, and we have SO many of them. This is really where only 10 episodes per season is stretching this.
+
+<img src="https://imgur.com/NkSOsVC.png" alt="trek">
+
+Anyways some of the people here worship the Vezda. There's also something about destiny and M'Benga? It's weird, it makes no sense. But the Vezda basically kidnaps M'Benga and uses him to transport to the prison where all the Vezda are, and then releases the other Vezda.
+
+<img src="https://imgur.com/8KnzsM8.png" alt="trek">
+
+Patel now has Star Child eyes. Chapel finds out that her life signs are the same as the Beholder Statue that was locking the Vezda in. What the fuck is going on? This is nonsense. The pacing is off. There's some shit about how the Vezda are inherent primal evil, which is stupid nonsense I won't even dignify that with a response, but also becoming hybridized for some reason wakes up genetic memory where she's now built to Fight Evil. THE GORN SAVED THE GALAXY AGAINST AN ANCIENT EVIL? Whatever. She's becoming Captain Marvel.
+
+This is dumb beyond words.
+
+"We have to get power to Patel and Pike" oh you know, Power. Just gotta Beam Them Power. And a ship can generate exactly half of that and shoot it in a phaser blast. Luckily Kirk is here. Remember btw Kirk is NOT the Captain of the Farragut. Why is he their contact on the Farragut? Talk to the fucking captain about this. Anyways they'll both have to shoot a laser at the ship perfectly connected. And they do this via a mind link.
+
+<img src="https://imgur.com/5zTUMcZ.png" alt="trek">
+
+Spirk hinting is going to be the best thing about this episode.
+
+Anyways they mind meld and now are mind connected and talking, away from each other, in two seperate ships. This is not how this works. This is not, and has never been, how mind melds work. We are knee deep in the writers strike right now fellas. Anyways Pike and Patel make their way in to Vezda Jail, and she's about to have a fucking wizard duel when suddenly it's interrupted by what seems to be a jump cut where she and Pike are happily married.
+
+It's obviously some kind of lotus eater machine.
+
+<img src="https://imgur.com/jj7hjSS.png" alt="trek">
+
+It's nice to see them age gracefully and live a nice happy comfy life at least. Pike doesn't get mutilated, life goes on. He's very confused but they don't go "oh we're in a lotus eater machine", it takes a long time for them to figure anything out. There's also a lot of stuff about knocking at the door, I dunno. It's not quite Inner Light, I'll say that. She says some shit about how she needed this so that she could remember him, and then
+
+<img src="https://imgur.com/4w7XX72.png" alt="trek">
+
+We're back to your previously scheduled Wizard Duel. Patel uses Magic to become a new statue, and that's it.
+
+We get some attempts at closure. Kirk and Spock literally go "We will always be friends". Also remember the hot three armed bartender from episode 2 of this season? Not there. WTF. Why even have the promise of her??
+
+We get a voice over by Pike about "No one we've truly loved is ever gone" and it's... okay I guess. He's a bit depressed but he's doing his best.
+
+
+
+Wow.
+
+This season was bad!!
+
+Almost the entirety of it was not good to bad! Like, wow! I'm astounded!!! Considering the high highs of season 1 and 2, it's wiiiild. It'd be like going from TNG season 5 to TNG Season 1. Like, it's not the worst, and there are highlights, but bluh.
+
+One of my biggest problems is that Pike was kinda pushed into the background for a lot of it. But that's not even close to the biggest issue. I dunno. Let's hope for better???
