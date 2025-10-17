@@ -1,0 +1,62 @@
+---
+layout: post
+title: Retro Achievement Mastery 212 - Digital Devil Story - Megami Tensei II
+subtitle: For Humanity
+categories: RAMastery
+tags: [Retro Achievements, NES, Retro Games, RPG, Megaten, Reviews]
+---
+
+
+![Game](https://imgur.com/oLfzb2V.png){: .center-block :}
+
+So a while ago, I made a post about Megami Tensei. I said I was trying to beat it but gave up cause it was kinda shitty and annoying, but I was playing Megami Tensei II and was enjoying it. That shows how behind on these I am, that was early August, it's now the middle of October. I've actually mastered Megami Tensei 1 btw. Expect that post sometime soon. If you missed that post and are like "wait, but I don't know what happened in Megaten 1" don't worry. It really doesn't matter much.
+
+Megami Tensei 2 blows Megaten 1 out of the water so fucking hard it's left orbit. Megaten 1 was frustrating, outdated, and annoying. Megaten 2 is one of the best retro RPGs I've ever played. The quality increase is frankly stunning.
+
+Megaten 1 was a direct sequel to the books where you played as a nerd who invented a Devil Summoning program. That doesn't matter now. This is a different story, kind of. It's still a direct sequel. You'll see. You get an intro telling you the world exploded in nuclear hellfire and almost everyone is fucking dead, and devils rule the world now. Well that bites. And then you name yourself and your female companion, much like Megaten 1, but also some other friend you have. Anyways here's the game:
+
+![Game](https://imgur.com/9XmMDBj.png){: .center-block :}
+
+It plays MUCH differently from Megaten 1, huh? It's a top down almost Dragon Quest style RPG. Huh, this map looks familiar. Wait, it IS the same map from Megaten 1! Weird. You wander around and are told you need to do a thing to release a spirit. Okay, cool. You and your ladyfriend wander around, gain levels, and can recruit demons. The demon recruiting in this is a LOT better than in Megaten 1. In 1 it was all random. Here you have some control over it. It's still random, but you can learn to affect the random percentages and make it easier to befriend demons.
+
+At the bottom of the tower, you defeat the minotaur boss much like MT1, and then release the spirit... who's name is Pazuzu, and he tells you that this game was made by the creator of the demon summoning program, you two are the chosen ones, he's working for God, and you must help him defeat Bael, an evil Demon who's trying to take over Tokyo. What???
+
+THAT'S RIGHT. The entire first hour or so of the game is a fucking *game inside a game*. You're actually some random dork in an underground vault, alongside your other friend you named at the start. You're playing a game Nakajima, the character from the first game, made of his adventures. And then you're sent out of the game and into the "real world".
+
+I really cannot stress how cool this is, and how EXTREMELY it sets this game apart from the first. In the first, you're given NO plot. You are dropped into one giant maze and that's it. Here, they're doing a fucking framing device. This is beyond impressive for 1990.
+
+![Game](https://imgur.com/Oc13SE2.png){: .center-block :}
+
+Anyways from this point on, the game actually jumps back to the MT1 style movement of the first person dungeon crawling, and the Dragon Questy top down exploration when you're on the overworld. You explore old vaults and broken buildings in first person. Along the way you're accompanied NOT by the girl you named at the start, but instead your friend. But everyone's talking about this Witch of Tokyo, and she has the same name of the girl from the game. Huh, weird. Pazuzu actually tells you she's betrayed their cause and is siding with Bael to destroy humanity.
+
+![Game](https://imgur.com/8yObWIo.png){: .center-block :}
+
+Okay, this is where the game takes a bit of a hit for me. But even with this mistep, I think it's impressive. I'll explain. You go to take on this Witch, and have a conversation with her. Now, if you say the wrong things, you can *softlock your game*. You NEED to side with her to continue the game, otherwise you're fucked. This is... bad. Very bad. And the dialogue, at least for the translation I used, is slightly stilted and hard to follow what they're trying to say.
+
+Despite that... I think what they're TRYING here is actually very good?? It's a good early RPG plot twist. She basically tells you "You're being lied to by Pazuzu. I'm not working for Bael, and Pazuzu doesn't have Humanity's best interests in heart. Join me instead, and we can save Humanity".
+
+If you've played Shin Megami Tensei, this is going to be very familiar to you. Those games have an alignment system, which goes from Lawful to Neutral to Chaotic. This is basically setting up the start of that. You can't be Chaotic in this game and side with Bael or anything, but it's setting up a lawful (side with Pazuzu and God) or Neutral (side with Humanity and escape the cycle these two sides are forcing you into). It's VERY good conceptually, but isn't told perfectly. And honestly, that's just a side effect of it being an NES game from 1990. Mother 1 has the exact same problem, an amazing idea and story that's a bit stimied by its Bits.
+
+Anyways after siding with the Witch, your friend is like "wtf, but we're God's Chosen??? We're the main characters, you can't do that! Well, next time we meet, we'll be enemies" and goes off to become the Dark Hero you gotta fight throughout the game. And then you go around, collecting items and doing side quests to get further so you can defeat both Bael AND Pazuzu, then eventually the big G himself. And not only that, but you know who sides with you, the Big Good of this game who's been rebelling against the evils of God this entire time? That's right. Fucking LUCIFER.
+
+When I first played this game I was like "I know the games later have you fight the Christian God, but there's no way this game does that right?" Uh, no. That's the plot twist. God is actually just as morally reprehensible as anyone else you've been fighting, and must be stopped. Fucking kill him. You get Lucifer on your team and *kill god*. It's genuinely *nuts*. I imagine Atlus talking to a localizer like "can we bring this over to America" and that guy exploding in pure shock. This would have caused **riots** in America if it got on store shelves in 1990, because it's not subtle, and it doesn't mix its message. A God that allows these things to happen is doing it on purpose, and must be stopped, and any being that's trying to rebel against Him for Humanity's sake is a good guy.
+
+It IS a little weird, considering Lucifer is the final boss and big bad of Megami Tensei 1, but I think by now you've realized this has very little to do with Megami Tensei 1 and is basically its own game. This is, in my opinion not Megami Tensei 2, but is really Shin Megami Tensei 0.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZDkYS8tqHyg?si=UzUf1nHFKzl_bcqr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+By the way, here's the final boss music. It fucking WHIPS.
+
+That's one thing about this game I haven't mentioned yet, it's aesthetics are INCREDIBLE? One of the best looking and sounding NES games ever, frankly. Probably the best looking RPG??? Look, I love FF3 and DQ4 a lot. A looooooot. But this looks fucking fantastic. And the monster design is SO COOL.
+
+Also the protagonist designs are INCREDIBLE? In the middle of the game you're collecting these items to open up a gateway to Hell so you can go beat the shit out of Bael, and one of them is in this giant mouth. You stick your hand in to grab it, and it fucking bites your hand off. You then have "one handed" as a status effect for a little bit, which drains your health and has you hit for nothing, but then THIS happens:
+
+![Game](https://imgur.com/sc0gnRu.png){: .center-block :}
+
+This is one of the sickest mother fucking character designs I've ever seen. Look at this dude with his keyboard computer robo-hand and big-ass cape. It's SO FUCKING COOL. This is WHAT I WANT TO LOOK LIKE. GIVE ME AN 80s ROBO COMPUTER ARM. BITE MY FUCKING ARM OFF.
+
+![Game](https://imgur.com/FVWgsaz.png){: .center-block :}
+
+Your partner's design is no slouch either, frankly. All the aesthetics are really on point. This is a grungy, shitty post apocalyptic world, and you gotta make a place to live in it. 
+
+I think I could go on, but I don't need to. I've sung this game's praises enough. From the amazing plot twists and set pieces to the primitive but impressive attempt at a story, this is one of the absolute best NES RPGs. I'd put it right up there with the likes of DQ 3 and 4, Final Fantasy 3, and Mother. It's still got its rough retro edges, but it doesn't get much better than this on this console. What an AMAZING glow up after Megaten 1.
