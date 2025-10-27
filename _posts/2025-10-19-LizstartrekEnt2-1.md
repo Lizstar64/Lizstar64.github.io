@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Enterprise Season 2 episodes 1 - 
+title: LizstarTrek - Enterprise Season 2 episodes 1 - 5
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Enterprise, Reviews]
