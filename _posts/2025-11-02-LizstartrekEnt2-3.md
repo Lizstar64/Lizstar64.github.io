@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Enterprise Season 2 episodes 9 - 
+title: LizstarTrek - Enterprise Season 2 episodes 9 - 14
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Enterprise, Reviews]
@@ -101,7 +101,7 @@ This one looks like it could be good. PLEASE be good, god I need this.
 
 Enterprise meets some aliens who are like "hey, we need your help, the storm will be here soon". What storm? Well, turns out there's a kind of storm that's on the way, it's VERY deadly and dangerous. And it'll be here in four hours. They could outrun it at warp 7 but uh, oops!
 
-<img src="https://imgur.com/oyhkKTB.png" alt="trek">
+<img src="https://imgur.com/cmJ1l9S.png" alt="trek">
 
 They have one place they can ALL fit which is properly protected. The proto-Jefferies tube, the "Catwalk", the spot in the middle of the Nacelle. It'll be cramped but they can prolly live in there for the time it takes. Which is, uh, 8 days. Oh boy.
 
@@ -111,7 +111,7 @@ I'm starting to get real tired of Reed. He's either boring and like, a non-prese
 
 <img src="https://imgur.com/PL8GzEG.png" alt="trek">
 
-Holy shit, it's Chef! Just off screen.
+Holy shit, it's Chef! Just off screen, but he's here!!
 
 Trip goes down to check some stuff out, in a space suit, where he finds a bunch of people just walking around on the ship, no suits. They're Takarets, just like the aliens they invited onto their ship. Archer asks them wtf is going on, and although their leader refuses to admit whats going on, the others are like "Fuck that they have a right to know". They're desserters of the Takaret Militia, a thuggish military who are frankly evil. And that militia is now trying to take over the ship, cause why not? Also cause they think the desserters are on there somewhere.
 
