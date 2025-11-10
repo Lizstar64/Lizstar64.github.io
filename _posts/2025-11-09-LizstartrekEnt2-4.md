@@ -56,7 +56,7 @@ You may notice I've not been talking about the B-plot at all. That's cause its b
 
 <img src="https://imgur.com/ldzddLn.png" alt="trek">
 
-When he DOES talk to Phlox about it, finally, he's like "I was told to never fuck another man's wife and I can't change that". Of course, it's all about the WOMAN in this. Phlox LITERALLY says "Your loss", which is funny. Fucking conservative southern man hangups.
+When he DOES talk to Phlox about it, finally, he's like "I was told to never fuck another man's wife and I can't change that". Of course, it's all about the MAN in this. The woman doesn't matter at all, it's all about the other man. Phlox LITERALLY says "Your loss", which is funny. Fucking conservative southern man hangups.
 
 <img src="https://imgur.com/mRVlfs7.png" alt="trek">
 
