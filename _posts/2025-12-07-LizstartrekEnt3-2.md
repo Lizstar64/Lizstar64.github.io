@@ -132,7 +132,7 @@ I really hated that. This does not meet its concept in a good way at all.
 **Carpenter Street** - ENT
 3.5/10
 
-<img src="https://imgur.com/EvyN6Ww.png" alt="trek">
+<img src="https://imgur.com/cBGwwsP.png" alt="trek">
 
 It's 2004 Detroit. Some shlub enters his apartment, grabs left over pizza sitting on his bathroom sink, and then gets a call. We're supposed to relate to this guy btw according to the background info, so get ready. His name is Loomis, and he's called to be told to bring another one, and do the sedetive right this time.
 
