@@ -83,9 +83,9 @@ This was just kinda dumb, and the moral and ethical ramifications are nuts. I ca
 
 This episode starts with Trip massaging some marine woman's feet.
 
-Can you believe this episode was written by Berman?? Why does everyone on this ship want to fuck Trip, he's so extremely repellant to me, I feel myself become dryers every single time he's on screen, I fear my nethers are going to become a new biome with NEGATIVE humidity. Anyways she kisses him because there's some kind of radiation here that makes things melt the decision center of the brain.
+Can you believe this episode was written by Berman?? Why does everyone on this ship want to fuck Trip, he's so extremely repellant to me, I feel myself become dryer every single time he's on screen, I fear my nethers are going to become a new biome with NEGATIVE humidity. Anyways she kisses him because there's some kind of radiation here that makes things melt the decision center of the brain.
 
-No, it's cause Berman wanted his OC to kill a hot woman cause he can't fucking get any.
+No, it's cause Berman wanted his OC to kiss a hot woman cause he can't fucking get any.
 
 Okay so this episode has A, B, AND C plots. The C plot is that Trip is doing meditation with this random marine girl, and T'Pol is getting jealous. Great. The B-plot is that Reed is butting heads with the head marine because he's moving in on his territory as the security leader on the ship. GREAT. And the A plot is actually interesting shit about aliens, so it will get the least screen time.
 
