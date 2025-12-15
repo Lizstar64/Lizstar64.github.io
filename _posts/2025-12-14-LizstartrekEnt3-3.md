@@ -18,11 +18,11 @@ IT'S BEEN A LOOOOONG ROOOOOAAAD
 **Proving Ground** - ENT
 7.5/10
 
-<img src="https://imgur.com/kWPp3UJ.png" alt="trek">
+<img src="https://imgur.com/XzAjCcQ.png" alt="trek">
 
 SHRAN IS BACK! I know we shut down ALL plotlines that we were building in order to force this Xindi shit down our throats, but thank GOD we're bringing back the best, actually GOOD part, of seasons 1 and 2. Shran is here!! And he's hunting for the Pink Skins, for some reason.
 
-<img src="https://imgur.com/XzAjCcQ.png" alt="trek">
+<img src="https://imgur.com/odoUW2u.png" alt="trek">
 
 God, Andorian Women are hot as fuck. Do you think there are half-human half-Andorians out there? If not, I can help.
 
