@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Enterprise Season 3 episodes 1-7
+title: LizstarTrek - Enterprise Season 3 episodes 8-12
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Enterprise, Reviews]
