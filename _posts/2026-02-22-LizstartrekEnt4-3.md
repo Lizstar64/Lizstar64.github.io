@@ -17,7 +17,7 @@ IT'S BEEN A LOOOOONG ROOOOOAAAD
 
 
 **Divergence** - ENT
-2/10
+3/10
 
 <img src="https://imgur.com/FhsK3NI.png" alt="trek">
 
@@ -52,7 +52,7 @@ Meanwhile, Harris calls up to go "actually them betraying me was the plan :) It 
 Also why is Reed still here? Why does he have rank?
 
 **Divergence** - ENT
-3/10
+2/10
 
 <img src="https://imgur.com/k9jvgjI.png" alt="trek">
 
