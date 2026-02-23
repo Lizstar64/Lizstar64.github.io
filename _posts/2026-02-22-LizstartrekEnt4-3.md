@@ -105,7 +105,7 @@ Archer captures a Tholian. Remember these guys? They're from TOS and are major a
 
 Eventually Forrest is released by T'Pol, who was never on Archer's side. But Archer had sent a message to the Empire, who wants them to get this ship anyway. Welp. Forrest is back in command, though. We also find she was a spy on board who mindwashed Trip to sabatoge the cloak. Trip is NOT happy about this.
 
-<img src="https://imgur.com/f3NCpIopng" alt="trek">
+<img src="https://imgur.com/f3NCpIo.png" alt="trek">
 
 Enterprise gets to where the other ship is, the USS Defiant, a ship from the TOS episode Tholian Web. Cool. Enterprise is caught in a Tholian Web, as Archer and a few others gain control of the Defiant. Forrest sacrifices himself to buy time for the escape pods. Then we watch Enterprise blow the fuck up... to be continued.
 
@@ -177,7 +177,7 @@ See, it's bad when ALIENS use lasers to kill and terrorize people, but when they
 
 
 **Terra Prime** - ENT
-8/10
+7/10
 
 <img src="https://imgur.com/Lo1x2kC.png" alt="trek">
 
@@ -205,7 +205,7 @@ Things aren't all good, though. We find out who the ACTUAL spy was, his name was
 
 <img src="https://imgur.com/Tp0q30V.png" alt="trek">
 
-Archer gives a speech to standing ovation at the peace conference. Things are going to go well. Also, as a twist, Elizabeth died due to cloning problems, NOT genetic compatability :o TIME TO GET FUCKIN' (also we already knew that, we met their future kid, but don't worry about it)
+Archer gives a speach to standing ovation at the peace conference. Things are going to go well. Also, as a twist, Elizabeth died due to cloning problems, NOT genetic compatability :o TIME TO GET FUCKIN' (also we already knew that, we met their future kid, but don't worry about it). The episode prolly should have ended on the speach and not this.
 
 There's also a final episode but we've already watched 6 tonight so we'll watch it later and I'll append this when we do that next week.
 
