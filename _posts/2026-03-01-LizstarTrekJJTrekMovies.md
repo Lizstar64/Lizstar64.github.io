@@ -190,7 +190,7 @@ Anyways they team up with Khan. Glad he's a good guy :) Why is this movie still 
 
 Leonard Nimoy's last Trek scene is him going "Oh yeah, Khan? He's bad news, don't trust that fucker". Rest in peace, man.
 
-This movie is seriously filled with so many "He said the thing, clap, nerds" things in it that it blows my mind. In any other movie that's a remake/retelling of a previous classic beloved movie, I'd assume it's just fanservice, cause the people making it love that movie so much. I genuinely do not believe that JJ Abrahms has ever seen an episode of Star Trek, he was just given a list of data about it and read some message boards.
+This movie is seriously filled with so many "He said the thing, clap, nerds" things in it that it blows my mind. In any other movie that's a remake/retelling of a previous classic beloved movie, I'd assume it's just cause the people making it love that movie so much. I genuinely do not believe that JJ Abrahms has ever seen an episode of Star Trek, he was just given a list of data about it and read some message boards.
 
 Woah, Khan betrayed them, what a FUCKING SHOCK. And then he betrays them AGAIN after promising to let them survive if they give him what he wants. And the entire time, Bandersnatch is SO BAD at- wait, they lowered shields to let him teleport what he wants, his crew, and then when he fires on Enterprise, they go "SHIELDS ARE DOWN TO 20%". What.
 
