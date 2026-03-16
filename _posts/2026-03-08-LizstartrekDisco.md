@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Discovery Season 1 episodes 1-10
+title: LizstarTrek - Discovery Season 1 episodes 1-5
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Discovery, Reviews]
