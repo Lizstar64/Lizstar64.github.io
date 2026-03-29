@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Retro Achievement Mastery 218 - Idol Hakkenden
-subtitle: Aww ys
+subtitle: What the hell is going on
 categories: RAMastery
 tags: [Retro Achievements, NES, Visual Novels, Reviews]
 ---
