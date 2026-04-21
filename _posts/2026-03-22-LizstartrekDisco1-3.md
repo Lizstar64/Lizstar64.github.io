@@ -16,7 +16,7 @@ I know literally nothing about Discovery, except for The Burn, and that it leads
 I am going to become the joker :)
 
 
-**The Wolf Inside** - ENT
+**The Wolf Inside** - DIS
 2.5/10
 
 <img src="https://imgur.com/Zcu5VFP.png" alt="trek">
@@ -50,7 +50,7 @@ They kill Stamets. He dies. All our gays, buried :D But apparently for some reas
 Another ship comes and blows the fuck out of the rebels. Oh no, who would do such a thing?! It's the Emperor... Georgiou!! Remember her? She was Michael's captain. Oh wowee what a twist, what fun. I guess this means Georgiou is like, Hoshi's grand daughter? Cool.
 
 
-**Vaulting Ambition** - ENT
+**Vaulting Ambition** - DIS
 2.5/10
 
 <img src="https://imgur.com/v7uv9Wo.png" alt="trek">
@@ -76,7 +76,7 @@ Lorca being evil is a twist that like... makes you recontextualize this series a
 
 
 
-**What's Past Is Prologue** - ENT
+**What's Past Is Prologue** - DIS
 3/10
 
 <img src="https://imgur.com/v7uv9Wo.png" alt="trek">
@@ -109,7 +109,7 @@ The fight scene was cool I guess.
 
 
 
-**What's Past Is Prologue** - ENT
+**What's Past Is Prologue** - DIS
 1/10
 
 <img src="https://imgur.com/sRPqds7.png" alt="trek">
@@ -153,7 +153,7 @@ What the *actual shit*
 Starfleet enlists Empress Georgiou, making her take the identity of the dead Georgiou. She takes over Discovery. What the fuck did Saru do to deserve this?!
 
 
-**Will You Take My Hand?** - ENT
+**Will You Take My Hand?** - DIS
 2/10
 
 <img src="https://imgur.com/9gvALYm.png" alt="trek">

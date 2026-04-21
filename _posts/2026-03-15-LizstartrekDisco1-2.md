@@ -59,7 +59,7 @@ Once again, not good.
 
 
 
-**Magic to Make the Sanest Man Go Mad** - ENT
+**Magic to Make the Sanest Man Go Mad** - DIS
 0/10
 
 <img src="https://imgur.com/9Y7vq5g.png" alt="trek">
@@ -109,7 +109,7 @@ I want to raise a glass. A GLASS! TO STAR TREK DISCOVERY! FOR MAKING THE SECOND 
 Every single decision in this episode is wrong. The actual conceit (I love time loops but man this is incoherent and impossible to follow), the writing (NO, I'M MUDD :D), the fucking characterization, DO I NEED TO EXPLAIN, the Comedy (No), the romance (VERY no)? I will say, Mudd's actor? Very good. His acting and mannerisms are good and correct! But the material he has is bad bad very bad not good very bad.
 
 
-**Si Vis Pacem, Para Bellum** - ENT
+**Si Vis Pacem, Para Bellum** - DIS
 4/10
 
 <img src="https://imgur.com/WxWrNzG.png" alt="trek">
@@ -143,7 +143,7 @@ This is the best episode cause it almost feels Trek at some points.
 
 
 
-**Into the Forest I Go** - ENT
+**Into the Forest I Go** - DIS
 5/10
 
 <img src="https://imgur.com/6kyDkHI.png" alt="trek">
@@ -182,7 +182,7 @@ They jump and uh, it goes bad. Stamets screams, and passes out. They beam to som
 
 
 
-**Despite Yourself** - ENT
+**Despite Yourself** - DIS
 4.5/10
 
 <img src="https://imgur.com/ad60ZJD.png" alt="trek">

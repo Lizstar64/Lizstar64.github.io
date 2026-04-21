@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Discovery Season 2 episodes 5 - 
+title: LizstarTrek - Discovery Season 2 episodes 5 - 10
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Discovery, Reviews]
@@ -14,7 +14,7 @@ Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my rev
 I know literally nothing about Discovery, except for The Burn, and that it leads into Strange New Worlds. So uh... I've been dreading this one. But hey, who knows! Maybe it'll surprise me!! Last week was good, ha ha ha...
 
 
-**Saints of Imperfection** - ENT
+**Saints of Imperfection** - DIS
 3/10
 
 <img src="https://imgur.com/EuZA4AQ.png" alt="trek">
@@ -54,7 +54,7 @@ No, I don't think I will.
 The episode ends with more of Michael's slam poetry. They seem to love ending every episode like it's the end of the series. This one was mostly pretty bad, but there was a sprinkling of good star trekky stuff, its just stuck in Discovery bullshit.
 
 
-**The Sound of Thunder** - ENT
+**The Sound of Thunder** - DIS
 4/10
 
 <img src="https://imgur.com/pt4U8Ge.png" alt="trek">
@@ -97,7 +97,7 @@ It's future Archer again!
 Anyways all's well that ends well, we don't see the Ba'ul reaction, Saru's sister is like "we'll work hard to show we're friendly :)" and then Michael uses this situation to have a new outlook on her life and her relationship with her brother, which is what happens in every episode of this.
 
 
-**The Sound of Thunder** - ENT
+**The Sound of Thunder** - DIS
 3.5/10
 
 <img src="https://imgur.com/uAX9kMX.png" alt="trek">
@@ -118,7 +118,7 @@ Meanwhile, Georgiou is like "psst, that Mind Ripper? That's a bad thing. Go save
 
 
 
-**If Memory Serves** - ENT
+**If Memory Serves** - DIS
 4.5/10
 
 <img src="https://imgur.com/Hx6n2Tj.png" alt="trek">
@@ -160,7 +160,7 @@ Georgiou: "Those stupid Talosians tried this with me in my universe and I blew t
 Anyways they blast off, now a super wanted ship.
 
 
-**Project Daedalus** - ENT
+**Project Daedalus** - DIS
 7/10
 
 <img src="https://imgur.com/W1Su1wR.png" alt="trek">
