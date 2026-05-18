@@ -176,3 +176,7 @@ I hated this. The entirety of this season. It is, in fact, worse than Discovery 
 But in the end, I need to wonder. What is this even about? What was Picard's goals, what was it trying to say? I mean, my first immediate thought, is it was trying to just be Game of Thrones. It was VERY Game of Thronesy without really understanding it. It wasn't trying to be Star Trek, that's for sure.
 
 Picard is cynicism. It's endlessly cynical and dark with no positive shining light. Star Trek is about optimism, but this series is very much NOT about that. And I cannot wait to never think about this ever again.
+
+<img src="https://imgur.com/vsSgAub.png" alt="trek">
+
+Okay apparently I missed this. Apparently Seven and Raffi are a thing? They really did not earn this. I mean, am I happy Seven is gay finally? Yes. It's been a long time coming. But I think they literally said 3 lines to each other.
