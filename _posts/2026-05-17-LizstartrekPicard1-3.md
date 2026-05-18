@@ -100,10 +100,10 @@ Hey, remember how all of these AI arte based off of Data? Remember how Data was 
 One more. We're almost done.
 
 
-**Et in Arcadia Ego Part 1** - PIC
+**Et in Arcadia Ego Part 2** - PIC
 1.5/10
 
-<img src="https://imgur.com/RsU3elB.png" alt="trek">
+<img src="https://imgur.com/F6okziJ.png" alt="trek">
 
 We are sitting here waiting for the final battle to come as it clearly is. Picard is like "please don't let the Romulans turn you into the monsters they fear". Look, if I was more engaged in this, maybe I'd be like "wow, that's a terrible thing to say to people trying to keep alive who are hunted and hated by the entire galaxy".
 
