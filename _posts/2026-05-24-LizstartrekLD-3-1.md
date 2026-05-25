@@ -328,3 +328,38 @@ Beckett's ship can't take the AI ship, obviously... but she called some who coul
 Beckett is brought back. Everyone apologizes to her (except her ex, who kinda just stares, shocked). We ALSO get another new member of the crew.... T'Lyn! YAY, SHE'S BACK AND A MAINSTAY! Whoo, let's hear it for the Cali-class!
 
 ....after credit sequence, Oh no, Badgey is back D: It's interesting that as this series goes on and gets better, it doesn't ERASE the things from the first seasons and ignore them, it just makes them better.
+
+
+
+
+....Okay.
+
+Wow.
+
+This kind of blew me away? I think maybe cause Trek Night has been so fucking dire since Enterprise started. Honestly, this is the best Trek thing on average I think since Voyager. It's prolly better than most of those seasons honestly. 
+
+The characters are a LOT more likable. It's a lot less mean spirited "ha ha look at them suffer" humor. It's a LOT more Star Trek vibes. Problems are handled not in Rick And Morty conclusions, but in Star Fleet ways.
+
+It's so much better that it honestly astounds me. And it's not like it's amazing. It was mostly 7s. But it CLICKS, and it's really not that much that's different, every little thing is just BETTER. The writing, the animation, the characters, even the pacing. The pacing was so much better, we can LET SHIT BREATH, HOLY HELL.
+
+Also, uh, may I say? I love the gayness of this.
+
+Star Trek has been a thing that's had a... we'll say difficult history with sexuality. It did have flirtations with it back in the 90s, I remember the Dax Kisses A Woman episode, which it handled rather well, but that was veiled in the "oh they were a man inside cause Trill" shenanigans. And don't even get me STARTED on Bashir and Garak, who were intentionally seperated cause they were too gay and had too good chemistry.
+
+Then we get Discovery. Discovery WAS gay. It finally allowed homosexuality. But it felt... not quite right. It is like Trek's equivalent of corporate pride. Like a "of COURSE we support gay rights! Here, we have your gay couple right here!" I DO like Stamets and Culber, but uh, their relationship is... weird. They are never shown being just a couple. But like a lot of Discovery, it doesn't really get development. It just is. It feels back patty, and it feels weird that their entire on screen chemistry is them talking about their relationship. At least show them existing as a relationship!
+
+Don't even fucking get me started on Picard's homosexuality.
+
+And then SNW was.... a little worse even? Nurse Chapel is canonically bisexual, cool, into that. We gonna do anything about that? No? Just gonna... throw that out there, but do nothing about it? Obviously bisexuals don't GOTTA date women, but I dunno man.
+
+And then there's how Lower Decks handles it. If the other Treks feel like they're meeting gayness with the Corporate Pride vibes. This feels like it's *made by queer people who'd understand what queerness would be like in a Trek utopia*. The first time it's mentioned, it's Beckett going "Yeah, no, I'm into anything, who cares." Pansexuality, fuck yeah. Then this episode really dials up how it's handled.
+
+It's NATURAL.
+
+No one makes a thing about it. There's no "look at us, we're so gay!" It's Beckett blushing about the girl she likes. It's a fucking one-off hologram character going "BOIMLER! I LOVE YOU! I LITERALLY ROMANTICALLY LOVE YOU!" And Boimler laughing and going "Aww, hey man I love you too." BECAUSE THAT'S JUST A NORMAL THING IN OUR SOCIETY. COOL.
+
+This is exactly the homosexuality I wanted in Star Trek. And even though Beckett and Jennifer's relationship ended messily, that's also... normal. That happens. Relationships are messy, and people make mistakes and fuck things up.
+
+I am genuinely SO excited to see how this show progresses in the future. Consider me hooked.
+
+...sadly we'll have to go back to Discovery next week. Sigh.
