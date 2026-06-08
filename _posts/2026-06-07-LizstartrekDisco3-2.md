@@ -181,7 +181,7 @@ I kinda like Carl being the Guardian of Forever tbh. He's kinda fun, and his ava
 
 Georgiou is like "I wish I had learned how to not be evil earlier..." Well, people tried, but you kept threatening to put their heads on spikes and shit. Maybe if we had a better show we could actually have seen you growing and being a better character but instead character growth is shotgun blasted right at the fucking end here. Michael and Georgiou say goodbye to each other, and she heads off into the Guardian of Forever. Goodbye, Georgiou. You were... a SERIOUS waste of a character.
 
-Admiral: "My condolences. We all fear her absense." ???????????????
+Admiral: "My condolences. We all feel her absense." ???????????????
 
 <img src="https://imgur.com/wmpz6kw.png" alt="trek">
 
