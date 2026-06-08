@@ -1,13 +1,13 @@
 ---
 layout: post
-title: LizstarTrek - Discovery Season 3 episodes 6 - 
+title: LizstarTrek - Discovery Season 3 episodes 6 - 10
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Discovery, Reviews]
 ---
 
 
-<img src="https://imgur.com/062m7Ch.png" alt="trek">
+<img src="https://imgur.com/628OoiO.png" alt="trek">
 
 Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you're curious about a nerd's views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I've watched some Star Trek before but not all of it!
 
