@@ -138,7 +138,7 @@ Rios is arrested by ICE who are EXACTLY how you'd expect ICE to be. Holy shit is
  
  Guinan shows her disgust for the state of humanity by pointing at a street with a donation center. I think she was focusing on the homeless peoples, but uh... thats not where my eyes went to in that frame
  
-<img src="https://imgur.com/pXDlGHMpng" alt="trek">
+<img src="https://imgur.com/pXDlGHMpng.png" alt="trek">
 
 The worst part of this is the Borg Queen trying to seduce Agnes into being part of the Borg. I didn't need ANOTHER Star Trek First Contact.
 
