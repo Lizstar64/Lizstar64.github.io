@@ -258,3 +258,11 @@ And Jack has his first posting, he's being put on the Titan. Though it's been re
 It does one of those teases of "Every captain has their 'let's go to warp' statement', what's your's?" and she opens her mouth as it cuts off. That's great, I like that.
 
 Then all the old fucks are at the bar with a toast. Data tries to tell a limerick, and they shut him up. Poor guy. And then they pay some poker. Cute. Good way to end their story, honestly, the same way they ended it the first time. 
+
+Oh hey there's a post credits sequence.
+
+<img src="https://imgur.com/fxkaL6N.png" alt="trek">
+
+Hello Q. "I thought you died" "You don't need to think so linearly." Cute hook that nothing has happened with, but who knows maybe eventually
+
+Anyways mostly good season. Nothing AMAZING in it but its certainly worth watching. Basically what you'd want from a TNG sequel series. I WOULD have loved more DS9 rep, but we at least got Seven and a Tuvok reference, right?
