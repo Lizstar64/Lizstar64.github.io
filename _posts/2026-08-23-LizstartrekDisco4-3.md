@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Discovery Season 4 episodes 9 - 
+title: LizstarTrek - Discovery Season 4 episodes 9 - 10
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Discovery, Reviews]
