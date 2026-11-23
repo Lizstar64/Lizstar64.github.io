@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Starfleet Acadamy Season 1 episodes 5 - 8
+title: LizstarTrek - Starfleet Acadamy Season 1 episodes 5 - 10
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Acadamy, Reviews]
@@ -152,3 +152,99 @@ We get scenes of them living together as daughter and father, with voice over fr
 Tilly gets a send off as Tarima basically thanks her for helping her move on. The episode ends with Ake basically as the Stage Manager from the play but for this show.
 
 I feel like if I had read the play this would have been even better. It's kinda on the cusp of a 9.5 and a 10 but I'll be nice. This is prolly the last 10 Trek is ever getting anyway. Gotta be kind. I do prefer Paper Moon but y'know, I also had watched 7 seasons of Rom. I bet if this was season 7 this woulda kicked my ass even more.
+
+
+**300th Night** - DIS
+7.5/10
+
+<img src="https://imgur.com/ECQF3PX.png" alt="trek">
+
+Its the end of the semester! Everyone is partying! And they're doing the Brother Bonding ritual in Kraag's room, which is neat. Remember when Worf did that? Fun callback. Everyone is bonded now... except Caleb, who pusses out and runs out and has an awkward conversation with his on again off again on the holodeck. Calebs not having a fun party day.
+
+Meanwhile we learn what it is Paul Giamatti stole. Some Omega particles. Specifically "Omega 147", a stable  variant of Omega. That one's from Voyager! More Clap Nerds moments, but hey, I don't usually mind it that much. 
+
+<img src="https://imgur.com/sSVKVHv.png" alt="trek">
+
+Sam is back and okay btw, though she's a bit different. She's embarassed by how she used to act. "You were one year old, it's understandable". She also helps Caleb figure out something he's been missing about his mother, and he tries to find her messages again with some new outlook aaaand instantly finds two years of them. Ey, this storyline might be reaching its conclusion! They listen to the most recent one and find out that Paul Giamatti is invading where she appears to be right now.
+
+He goes looking for help, but everyone's is pretty on edge about all of this. They can't really send any Starfleet ships to help, cause they need to protect Betazed to keep the Federation stable. He then says some weird cryptic shit to Tarima that would immediately make me go "I'm calling medical".
+
+Sam and Caleb are stealing a shuttle. Well, Caleb doesn't want Sam to help, but Sam wants to help. Darem stumbles in drunk as fuck, and Genesis is basically kidnapped and brought along for the ride. Leaving poor Jay-Den out of the climax ): Jay-Den's job is to basically tell Tarima what's going on so SHE can go to the adults and get the Athena to chase after their asses. (Apparently Jay-Den's actor was having issues with prosthetics, so prolly why he's kinda written out, a real shame) Ake goes to Admiral Daddy and is like "Hey you promised me you'd help me keep Caleb safe" and he goes "ah shit. Well if you chase them to enemy territory, I cannot help you". Damn. STILL a good admiral. 
+
+<img src="https://imgur.com/YTYKjuO.png" alt="trek">
+
+Caleb finds his mom! At knife point, but then it turns into a crying hug. Aww. 
+
+LOL "Captain, we found some possibilities of some people sneaking around on board!" Aaaand it's Kraag and Tarima. "H-how?" "If you increase pressure by 0.29% in a room it blocks life signs." "THAT... IS A DESIGN FLAW." lmfao. And honestly a kind of realistic design flaw, I'd bet something like that is real. They were just trying to sneak out to save their friends. Oh those crazy kids.
+
+<img src="https://imgur.com/L62c1OB.png" alt="trek">
+
+Caleb tells his friends they all gotta go their seperate ways. No one is happy about this. To try and get them to go away without any kind of regrets, he tries to tear them down. It doesn't really work. They know how he is. He's just a "messed up little kid". But then when they're all captured by Venari Ral, Caleb has to save them. He also sends a message to Ake telling them where they are.
+
+A shootout happens. The Venari Ral are... I dunno how they feel as villains. They're like.... I dunno what they're supposed to be. But they're very mustache twirlingly evil and will just kill federation citizens if they even think someone might be federation, all while cackling about it. Why? I dunno. Cause they're evil. Ake comes in to save all of them, though Caleb's mom is injured in the process.
+
+The Venari Ral are using Isolytic weapons?? WHY DO THEY HAVE THAT?!
+
+The Venari Ral have set up a ring of mines around the entirety of Federation space. Hey, remember when we set up mines around a SINGLE wormhole and it was super dangerous and hard to set up and we needed a fucking genius to do it? They must have a Rom on their payroll.
+
+<img src="https://imgur.com/P65VBsu.png" alt="trek">
+
+Ohhh Caleb's mom is NOT happy she's under Federation custody.
+
+
+**Rubincon** - DIS
+9/10
+
+<img src="https://imgur.com/1TG9BtN.png" alt="trek">
+
+Shit is bad. They can't get back to Fedspace, and are under attack as Braka comes to bear. And then this dude fucking teleports onto Ake's ship DIRECTLY ONTO HER CAPTAIN'S CHAIR. He legit said to his transport officer" put me on her chair, I wanna piss her off even more". What an asshole, I love that. 
+
+Braka says he doesn't like Reno. That's how you know he's a bad guy!
+
+They hide the cadets from scans by doing the 0.29% pressure thing. 
+
+<img src="https://imgur.com/eQ2yKFc.png" alt="trek">
+
+Braka takes Ake, Caleb's mom, and then blows the fuck out of the ship. RIP everyone. No okay, they did a big hologram maneuver to make it SEEM like they asplode. Okay so now it's all the kids... and captain Reno. This is what we've literally all wanted since season 2 of Discovery. She's very Reno around all of this.
+
+Ake and Ashisha (Caleb's mom) now have to work together, as Ake sneaks her hints that Caleb is alive. They're there as Braka gives an announcement.
+
+I'M HAVING AN ANNOUNCEMENT
+
+<img src="https://imgur.com/pxtEcuZ.png" alt="trek">
+
+THE FEDERATION IS A BITCHASS MOTHERFUCKER. IT PISSED ON MY FUCKING WIFE. 
+
+No he's actually doing a big-ass Nolan Batman style speech and scene where he's putting the Federation "on trial". Q he ain't.
+
+Okay. I'm going to make a declaration. For the end of this season and into next season, of what I want. I want Ake and Anisha to start dating. Hear me out, okay? It'll work. IT'LL WORK.
+
+ALSO IT'LL MAKE EVERYONE ANGRY AS FUCK, WHAT ELSE COULD WE WANT
+
+<img src="https://imgur.com/VIDqI8R.png" alt="trek">
+
+As Anisha tears into her, Ake looks a fuckin' wreck. "I HOPE YOU THINK ABOUT ME EVERY DAY, ABOUT WHAT YOU DID." Um. She already does.
+
+The Doctor is broken and his language processor is broken. He's trying to tell them things, but they can't understand him. Sam is also still mad at Genesis for how she THINKS Genesis treated her before she became more... adult. But they finally have a heart to heart, and using that Sam works out what the Doctor is trying to say. They need to use... Rubin Particles or whatever to try and stop the Omega Mines. They find a way to do it, but need to take on Braka directly, basically. 
+
+To guide them there, they're gonna use Tarima's psychic powers. She's been told all her life she can't control these powers, but Caleb gives her a pep talk and she's willing to try again. 
+
+<img src="https://imgur.com/6O4syDv.png" alt="trek">
+
+It works! She also confesses her love. Cute!
+
+They make it there just as Caleb's mom declares Ake guilty. Caleb reacts to this by... taking a shuttle down to make his declaration to the quadrant on TV. And his declaration is that Acadamy helped saved him. He ALSO helps tear down a lie Braka made. Braka said his home, a Strontium mining colony, exploded in red Federation weapon fire cause fuck them, the Federation is evil and wanted them dead for no reason. Well no, obviously. Strontium explodes red when used as weapons, improperly. He was just told as a little kid that to make sense of it. And he's still living as that little kid, unlike Caleb, who was but grew up over the season.
+
+It's a good theme. I DO wish they had built this up over the season tbh, it feels like they just shoved this into his character at the end. I liked Braka, he was fun, I liked watching him, but he was pretty one note. 
+
+Anyways everyone abandons Braka over this, and he throws a tantrum and decides to blow up the mine field... which has now been shut down. The Federation shows up, arrests Braka. Anisha punches him. "YOU CALL THAT A PUNCH?" Ake punches him, and he can't help but go "OOUUGGHHHH"
+
+OH MY GOD. ANISHA AND AKE ARE FLIRTING. HOLY SHIT.
+
+I FUCKING CALLED IT.
+
+MY YURI SENSES HAVE NEVER BEEN FINER TUNED.
+
+Caleb is going to stay with his mom during Summer, but this is his home, and he will be coming back. But now he has two homes. It ends with him spending time with his friends as Reno and her wife walk by holding hands.
+
+This was a good season!!!

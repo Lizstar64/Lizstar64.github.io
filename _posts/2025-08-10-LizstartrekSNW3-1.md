@@ -1,6 +1,6 @@
 ---
 layout: post
-title: LizstarTrek - Strange New Worlds Season 7 episodes 1 - 5
+title: LizstarTrek - Strange New Worlds Season 3 episodes 1 - 5
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
