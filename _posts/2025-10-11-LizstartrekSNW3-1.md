@@ -1,98 +1,179 @@
 ---
 layout: post
-title: LizstarTrek - Strange New Worlds Season 4 episodes 1 - 2
+title: LizstarTrek - Strange New Worlds Season 3 episodes 1 - 5
 subtitle: 
 categories: LizstarTrek
 tags: [Star Trek, Strange New Worlds, Reviews]
 ---
 
 
-<img src="https://imgur.com/TTCxi3l.png" alt="trek">
+<img src="https://imgur.com/IVV1wHl.png" alt="trek">
 
-Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you're curious about a nerd's views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I've watched some Star Trek before but not all of it!
+Every Sunday my Twitch subs and I watch Star Trek in my Discord. Here are my reviews and thoughts on each of the episodes as I see it. If you’re curious about a nerd’s views on Star Trek episodes, please read on, I go quite in depth with some of these episodes! I’ve watched some Star Trek before but not all of it!
 
-So I LOVED seasons 1 and 2 of SNW. But I.... did not really enjoy season 3. And as we were sitting here trying to remember what happened, we kind of couldn't. So... maybe this will be better!!!
+This is the third season of SNW, finally coming out. We’re gonna watch an episode of this once a week until we finish, alongside Voyager, cause it’s coming out y’know, one a week. Yay! I love SNW!
 
+Hegemony Part 2 - SNW 6.5/10
 
+<img src="https://imgur.com/WEvb4AL.png" alt="trek">
 
-**Valles Marineris** - SNW
-5.5/10
+Following directly after last season, the Enterprise is surrounded by Gorn, and some of their people are captured on the Gorn ship. The Enterprise is forced to retreat… but not before tagging the Gorn ship with a dud missile that’s actually a secret beacon.
 
-<img src="https://imgur.com/ZuQ6WIZ.png" alt="trek">
+Pike’s girlfriend, Batel, is infected with Gorn Babies and they might need to kill her, but to prolong things, they’re freezing her in a block of ice. Specifically SHE’S the one asking them to kill her if they need to. Well, at least that’s the PLAN, but turns out she’s allergic to being stuck in a block of ice, which I imagine I’d be too. Now Nurse Chapel is stuck trying to figure out how to cure Being A Gorn Mom.
 
-Everyone is horse riding on a planet and having a good time. Yay, horses! Everything is nice and happy after last season's horrifying nonsense! When Pike gets back he's told "we want to promote you to admiral. Let us know after your next mission what your answer is". He doesn't seem very happy about the idea. Meanwhile, Uhura has a new cadet that she gets to show around the ship and mentor! She's a Vulcan who's abrasive, rude, and an asshole. Oh. Good. More poorly written Vulcans.
+<img src="https://imgur.com/4vvOBev.png" alt="trek">
 
-The mission is to go check out a storm, and when they get there they get an SOS from someone inside the storm. The ship reacts in the storm by... spinning the camera around in circles. Hooooly shit that made me very motion sick. The storm knocks out, and they're dead in the water in the middle of a weird warp field at the center of the storm. 
+Admiral April is like “we have to just ignore all this and let the Gorn capture neutral people” and Pike, being Pike, says fuck that shit, we’re being treated as Prey. And April agrees, unofficially, their rules are to punch the Gorn in the nose and show they’re not prey. Meanwhile, in Engineering, Scotty and Pelia the Warpcore Witch are trying to get a Gorn Cloaking Device up. Scotty says it’s impossible. Pelia is like “we’ll have it done in an hour sir”. Scotty is, one day, gonna be REAL good at doing the impossible on a deadline, and he’s gotta figure out how to get good at it real fucking fast.
 
-<img src="https://imgur.com/yNnz03a.png" alt="trek">
+Meanwhile, on the Gorn ship, La’an wakes up and punches her way out of a Gorn sack. She rescues the other members of the crew captures, including Sam Kirk (Kirk’s brother), Doctor M’Benga, and Ortegas (who has had half her hand melted off). They want to get out… well, three of them do. La’an decides then and there, she’s going to save ALL the other colonists. Good luck.
 
-They go to a nearby planet to get materials to reignite their warp core. They land on a weird planet that has giant animals. While they're down there, something grabs the ship and drags them away. ...did we go back to prehistoric Earth? Are these the Saurians? Oh PLEASE let it be the Voth!
+Y’all remember Mitchell? She was a very minor background character in season 1, had some minor roles in 2, and now she’s on the bridge and refuses to leave until they can solve this. Yay, Mitchell!
 
-The aliens are like "We are taking your damaged ship as salvage :)" Pike invites their commander... onto the ship to "show her weapons", which isn't ideal. They ALSO learn where they are! In the Sol system. 65 million years ago. Yes! YES! VOTH!!! There are three M class planets here for some reason, interesting.
-
-<img src="https://imgur.com/9LDqQrW.png" alt="trek">
-
-Oh. Those aren't Voth ):
-
-Darn. These are the Martians. They're super... militaristic. And they ONLY care about weapons and killing their enemy, the Dol'drm, and nothing else. Even when just talking about CARROTS, she goes "is this a weapon?" Girl. Not everything has to be about killing people.
-
-They actually make some progress, this seems to go well, they try and help the Martians make peace with the Dol'drm... and then the Martians just start stealing shit. The head Martian lady has found out they're from the future, the Federation doesn't really exist, and therefore an alliance with them means nothing so they're just going to steal their shit and leave. 
-
-Back on Earth, we've GOT A RAPTOR PUPPET! It's basically Yoshi from the Mario movie. La'an punches it in the snoot. Poor raptor ): We ALSO find out from this.. La'an breaks her hand, feels no pain, and they determine her augment DNA has activated. She doesn't THINK she's going to try and kill everyone and take over the galaxy! But hey, we've had bad experiences with augments in the past.
-
-<img src="https://imgur.com/pO7TkGy.png" alt="trek">
-
-The Martians are headed to the Dol'drm's planet, a 5th planet in the Solar System, between Mars and Jupiter. Enterprise moves to stop the explosion, but... Pike refuses to order the bomb destroyed. Yeah, this is a self fulfilling time loop, and they need to let that planet explode, become the asteroid belt, and then use the blast wave to travel to the future. Which they do. This explosion ALSO sends the asteroid to Earth, hitting it and extincting dinosaurs.
-
-They go real into why they had to do what they do, or had to NOT do what they wanted to do. Yes. I know how a self fulfilling time loop works. This is not a show for 4 year olds.
-
-They also learn that the Martians may have gone extinct because of what happened (Mar's orbit got changed nad cooled) but they did manage to escape and spread their DNA around the galaxy, though by now there's no real group of them anymore. The uh, the Dol'drm was prolly not as lucky. But they had to die so that they could exist. "I'd have done the same thing the Martians did," said Pike. What? No. They weren't able to communicate and didn't even try. You would NOT have done what they did, you would have at least TRIED for a peaceful solution.
-
-Anyways they're back home. Pike of course shoots down the promotion and gives it to Una, who is now Commander U- WHAT. COMMANDER? SHE WASN'T A COMMANDER ALREADY?!?!?! WHAT THE FUCK?! Also the Vulcan continues to be a piece of shit and says she's gonna leave. AND they're pushing Ortegas into Scotty. Ohhh no. They're gonna hetero Ortegas up ):
+They have some SMALL hope. Batel has a 14% chance of survival if they use Una’s blood. Yay! Also the Gorn seem to go to sleep when a certain kind of star flare happens.
 
 
+<img src="https://imgur.com/jFp5msI.png" alt="trek">
 
-**The Griffin Incident** - SNW
-3/10
+<img src="https://imgur.com/FkBzvR4.png" alt="trek">
 
-<img src="https://imgur.com/6G8QN0d.png" alt="trek">
+Shit is going way, WAY worse. Man this is tense. While exploring a weird binary star that seems to hide the Gorn homeworld because of radiation, they find a BUNCH of Gorn ships blasting out of the zone and going towards Federation space. Now Pike has a choice. He might lose the tag on the colonists and his crew if he leaves to warn Starfleet, but they are NOT prepared for an invasion. So he makes the impossible choice and leaves them.
 
-Kirk, Spock, and La'an are responding to a weird SOS signal they found. It's an old SOS signal, and they find a ship called the Griffin, a ship that went missing 9 years ago. 
+Pike seems so fucking done. He’s EXHAUSTED, he’s worrying about every single little thing. And can you blame him? When he goes to Scotty and Pelia like “Hey can we make a solar flare” and Scotty is like “what the fuck no. Not without doing this this that and this which will blow up the ship” Pike is like “Sure just do it without the blowing up the ship part” and everyone just… stares at each other.
 
-They beam on board and Kirk starts hearing a baby crying while the others do not. Ohhh we're doin' some ghost ship stuff. Maybe even some Magnetic Rose shit! Neat.
+There’s a lot of “have faith” talk in this episode, which we keep making fun of by posting Star Wars memes. It doesn’t help when Ortegas takes over a Gorn ship and flies them out in a scene that is VERY Star Warsy. Also Ortegas becomes massively injured in the skirmish, but sticks too it. Poor Ortegas, she can’t catch a break ):
 
-<img src="https://imgur.com/TTCxi3l.png" alt="trek">
+We get a fuzzy fisheye scene with them in the radiation, but it works. They use the flare to trigger a hibernation in the Gorn, as they come back to go eep. Ortegas raises her deathflag REALLY high but is saved just before dying, thank fucking God. sees death flag in Ortegas’ mouth WHAT DO YOU HAVE THERE? PUT THAT DOWN.
 
-Yep. Time for horror.
+<img src="https://imgur.com/evmRMxM.png.png" alt="trek">
 
-They all see a ghost to disappears. They also find a door that's been sealed shut, telling them some things. 1) They were not the first person to board this ship. 2) Those earlier people were Federation, Klingon, and Vulcan. 3) They sealed the door AND tried to open it. 
+Batel is saved, Spock and Chapel have a moment of acceptance, and the Enterprise is beat to fuck. But alive. It ends the “have faith” talk with Pike thanking God for some reason.
 
-They find out what happened, kind of. They find out who the ghost they saw was, a member of the Griffin's crew, who was reporting the crew was acting erratically. She was confined to quarters, and became convinced they were all under control of some alien force and she was the only one left. So she just... killed them. Strangling some, spacing others. This crew member supposedly removed their bodies and moved them... somewhere.
+I thought it was alright! Not blowing me away, but good! Excited for more.
 
-Things start happening randomly. Body bags that were empty fill with bloody corpses. One gets up and moves behind Spock. The crewmember's log starts SPEAKING to La'an, and the one moving behind Spock also speaks to him. Also they shuttle randomly died. Uh oh, they're stuck on this weird-ass ship.
+I’ll be editing this page every week and reposting it with the new episodes as they come out =w=
 
-<img src="https://imgur.com/IpxsXR8.png" alt="trek">
+Wedding Bell Blues - SNW 8/10
 
-The moving body was T'Pring!! She's like "what why am I here" and Spock is like "Yeah I'd like to know that too". Spock's current theory is there's a psychotropic effect causing him to hallucinate. He even starts bugging out in a Vulcan way. 
+<img src="https://imgur.com/9FnKzZH.png" alt="trek">
 
-All three are buggin' out in different ways. La'an sees the murderer, Rose Harper, who's trying to get her to kill people like she did. Kirk hears and sees his son David crying. Tie in to Search for Spock! Spock sees his ex, who ends up taking his gun and shooting him, then... cuts his ears off. That's... horrifying.
 
-The rest of the crew show up and rescue Kirk, who is clearly unstable and shakey.
+It’s 3 months after the nightmare of the last two episodes, and the Enterprise is repaired and ready! Everyone is going to a gala to try and relax! I’m sure this’ll go exactly as expected! To try and get into the spirit, and to practice for getting things going well with Nurse Chapel, Spock is practicing dancing with La’an.
 
-This episode is clearly trying to be the horror episode. Lots of not knowing whats real and whats not, lots of weird unsettling things. Lots of things not workign the way it's supposed to work. I don't hate it by any means, but I dunno if it works. I can't relaly explain why though.
+<img src="https://imgur.com/Yol3Cdf.png" alt="trek">
 
-La'an and Spock are rescued, Spock with his ears snipped off. La'an, Uhura, and Erica try to beam off, but La'an nearly kills Erica in a teleporter, and Una and Pike start trying him down again, Una cutting into herself. Jesus, this episode. Sam starts monologuing to Kirk. Obviously none of these people are actually real, it's weird as hell. Sam gets slammed against a window and we see his INTESTINES GET SUCKED OUT OF HIM THROUGH THE WINDOW.
 
-WHAT IS THIS EPISODE? WHY IS THIS SO GRAPHIC?!
+BUT NOT A BRAIN! :D
 
-<img src="https://imgur.com/cDlz9kJ.png" alt="trek">
+Anyways, Chapel comes on board with the doctor she’s been working with for three months, Roger Korby. He’s a very friendly guy, but a bit eccentric. Anyways Spock almost makes an ass out of himself before we find out Korby is, in fact, dating Chapel now. Whoops!
 
-La'an finally fully loses her self to insanity. She ends up stabbing Kirk... maybe for real?
+<img src="https://imgur.com/AkPLZfu.png" alt="trek">
 
-PIKE IS CHOPPING HIS FINGERS OFF. WHAT IS THIS EPISODE?!?!?!
+Holy HELL, Uhura’s outfit is on point.
 
-Anyways Spock manages to force his way out of the hallucinations, making it clear he was cutting his own ears off. They're all teleported off the ship, and they quickly take Jim off to medbay to try and help him. ...Or they just stare at him and talk instead. wtf are y'all doing? Teleport that man now?!?! Also when they beamed back to the Enterprise, La'an with a knife about to stab Jim again, they're all standing there staring, mouth agape. That's what we all look like watching this episode.
+Ortegas is doing better. Physically, at least. We meet her brother, who is flirting a bit with Uhura, who seems reticent. Ortegas isn’t into it, though.
 
-We get scenes of people talking to the survivors. Chapel talks to Spock, Pike talks to La'an, and Uhura talks to Kirk, all trying to help them recooperate and come to terms with what they saw. Kirk then calls his kid. These are... good scenes, but man, this episode really took me out of it.
+Everyone gets together to drink a bit. Spock is, as usual, awkward. He steps away for a drink at the bar, and we get this like, weird Mxptlk mother fucker who’s tending bar. He appears as a Vulcan to Spock, but to us, he’s a weird mother fucker. He gives Spock a drink, who… wakes up later that night next to Chapel. They’re getting married! Oh boy! I’m sure Chapel will handle this very well!
 
-I don't think it's a.... BAD idea. But it could have like, really been good character development and it felt like it was trying but it didn't really hit. And then it was just shock horror. We watched Hellraiser and The Thing this holloween, and THIS is what upset Neli (she does not like horror or violence)
+This Mxptlk ass dude is basically acting as wedding planner and getting everything all right and dandy. Is he a… shipper? Of Nurse and Spock?? I will say, over all, I haven’t really… been into the Chapel and Spock thing? It’s not JUST cause I know it won’t go anywhere, but also cause of how they just… don’t go together lmfao which I think this episode is doing its best to try and show.
+
+Korby is the ONLY person who seems to realize something is wrong. He can remember things how they SHOULD be, and is trying to subtly sabatoge the wedding. Spock catches him, and he explains that this is all wrong. Spock punches him out, but then for some reason remembers that yes, this IS wrong, and… well yes, feels bad, but most importantly is like “this needs to be fixed”. He and Korby work together, they’re both smart science boys, and though they love the same woman, they have to work together to figure out what’s wrong.
+
+<img src="https://imgur.com/3XmlT3E.png" alt="trek">
+
+It’s kinda fun to watch these two try and wander around a changed reality, testing at the waters and touching the boundaries to find where they are. Spock tries to get others to realize something is wrong. He tries to get Kirk to punch him. He insults his mustache. It doesn’t work.
+
+When they confront the Wedding Planner about this, he reveals he’s a giant fucking baby and this is all a game to him, which they’ll have to play, or he will wipe everyone from existence. Welp. Korby and Spock change up their plan and yeah, the only thing they can possibly do now really, is try to go along with it. When Korby DOES act up, he’s turned into a dog, and no one else seems to care. They’re really just his puppets.
+
+<img src="https://imgur.com/JsdWJEP.png" alt="trek">
+
+Eventually Chapel snaps out of it too, thanks to Spock, and when the Wedding Planner announces everyone is going to die. But he’s interrupted by his… dad. Who is, in fact, played by John de Lancie. Hmm. The bartender is just a kid, and he’s made to clean up his toys. Everyone is like “WELL THAT WAS WEIRD” and then tries to celebrate the actual reason they’re there, the Cenntenial. La’an dances with Spock, who has no regrets. We have one of the three armed aliens from TAS, who joins the crew as their bartender, yay! Aaaaand Ortegas has a PTSD episode. Yay!
+
+Shuttle to Kenfori - SNW 7.5/10
+
+<img src="https://imgur.com/uMeF8wz.png" alt="trek">
+
+Somehow, the Gorn Tissue has returned. Patel is still sick cause of Gorn, but they think they have a way that can fix it. It takes a flower, but it can only be found in a no-fly zone that would cause a Klingon War if they went to it. So Pike does an off the books mission, setting himself up as the person who’d take the fall if it goes bad. Mbenga goes with him, cause y’know, it’s a medical thing. It’d be a good idea to bring a Klingon War Vet to this possible Klingon area~ And on the way they get a warning beacon of “GO BACK OR DIE”, which is weird to have on a planet where no one’s supposed to be there.
+
+There are no life signs on the planet. It’s a jungle, but no animals, at all. And they find a corpse that probably died after the evacuation. Welp, it’s Aliens time or some shit.
+
+<img src="https://imgur.com/vZ8WhBe.png" alt="trek">
+
+While going through an old building and gathering their flowers, a Klingon shuttle (the first in the series? At least that I’ve seen) comes and blows their ship up. Now they’re being hunted by some Klingons, oh boy! It’s two guys and a woman who appears to be in charge.
+
+The Klingons get them, but then they’re attacked by… zombies. Just, straight up zombies. They eat a Klingon alive. Jesus CHRIST. I dunno if we’ve ever seen ANYTHING like this in Trek? It’s now a fucking zombie horror movie. By the way, this planet, Ken Fori, is named after Ken Foree, the lead actor in Day of the Dead.
+
+Back on the Enterprise, they plan how to rescue their crew. Still radio silence, they dunno what happened, they just haven’t heard anything from the ground team, so they go after them with a very slow, but safe tactic. Ortegas is VERY unhappy about this and pretty insubordinate. La’an is worried about her health, which we know isn’t doing very well.
+
+<img src="https://imgur.com/XiJNsUb.png" alt="trek">
+
+So this flower causes genomes to like, fuse, basically. Hybridize people into different things. They tried to use it on a moss that could grow anywhere to make a super food. It accidentally hybridized with corpses and now there are zombies. Mbenga refuses to call them Zombies. Pike keeps using the “Z” word. And now that he knows what the Chimera Flower does, he knows that it’ll turn her into a Gorn hybrid. He is NOT happy about this, but it was her decision, and is the only way anyone knows to save her.
+
+They get chased by more Zombies, and find themselves with the Klingon girl behind a force field. She stabs Pike, and we find out that she’s the daugher of Dak’Rah. Remember him? He was the dude from last season who was a straight up war criminal who was trying to act like he had changed, and was killed by M’Benga in a scene where it’s not clear exactly what happened, if it was self defense or not. Now it’s coming back to bite him. She hated him so it’s no problem there, but she’s sure that if SHE had killed him, she would have brought honor back to her house, and now she has to kill his assassin. And M’Benga admits that he intentionally killed Dak’Rah, it was NOT self defense.
+
+We get PTSD War Hero M’Benga again.
+
+<img src="https://imgur.com/8tXJNvH.png" alt="trek">
+
+We get a fight scene between M’Benga and this Klingon, fighting with D’ktaghs. In the fight, they damage the force field generator, which is probably not good. M’Benga then wins the fight and chooses not to kill her, which is maybe the rudest thing you can do to a Klingon. So she chooses an honorable death by sacrificing herself. No one will know, but she will. And so with M’Benga, who respects the choice.
+
+Some good flying by Ortegas gets them to save the away team, though Una is VERY unhappy with how Ortegas has been acting. And now Pike has to decide whether or not to turn M’Benga for doing a murder. But luckily, M’Benga only told a story to save Pike’s life when there was a knife to his throat, so, y’know, checks out.
+
+Uh oh. Ortegas intentionally did a bad job so they’d do her idea instead. It was unneccesary, because Pike and M’Benga were going to get on a shuttle anyway and would be safe, and she endangered everyone. So she gets a slap on a wrist, but a “please do not EVER do this again”.
+
+<img src="https://imgur.com/p5tW9bd.png" alt="trek">
+
+Patel and Pike have a heart to heart about it. He’s like “why didn’t you tell me?” “Because it wasn’t about you, and we both know if I did tell you, you’d tell me not to do it and find another way even though there is no other way”. Which y’know, he did. On the planet. So she’s right. And then it just… ends. I guess we’ll find out next week how it goes!
+
+This one was uh… fine. I dunno how much we needed zombies in Star Trek but that’s fine. Fun Klingon fight!
+
+A Space Adventure Hour - SNW 9.5/10
+
+<img src="https://imgur.com/62SIAKV.png" alt="trek">
+
+Ohhhh no, those outfits. Holy SHIT, La’an is on point.
+
+So, I’ve not been enjoying this season as much so far. But I’ll stick with it, maybe it’ll get better! Anyways this episode starts with one of the best scenes I’ve ever seen.
+
+<img src="https://imgur.com/P7kebx2.png" alt="trek">
+
+We get Kirk’s actor, Chapel’s actress, and Ortegas’ actress doing some… kind of thing here. It’s obviously a pastiche of TOS. Though I WISH TOS looked and acted like this. It’s got a lot of really like, Dr. Who style models and special effects, and it feels more like an adventure serial of like, the 40s. But Kirk’s actor is here doing an EXTREMELY good Shatner impersonation. The intro is for this Space Adventure show, and it’s great.
+
+Anyways back to actual Star Trek. The Federation is developing a new kind of technology. It’s for entertainment on long-term space exploration voyages. It’s called The Holodeck. THIS MEANS THIS IS THE CANONICAL FIRST HOLODECK GOES WRONG EPISODE? YAY! Pike gives testing to La’an and tells her to push it as HARD as she can.
+
+We get more La’an and Spock dancing, as Spock seems to be continuing dance training. He’s ABSOLUTELY, CLEARLY making moves on her. I was not expecting Spock to be the horndog of SNW? I don’t HATE the idea, though this is maybe better. La’an is one of the characters we don’t know what happens to after this, clearly Chapel and Spock aren’t dating in TOS era, soooo, this works better.
+
+La’an decides to give the computer a challenge. She really loves detective novels, and asks it to…
+
+<img src="https://imgur.com/iXIxKLc.png" alt="trek">
+
+LA’AN, NO! THIS IS HOW WE GET MORIARITIES!!!
+
+You KNOW they did this on purpose to get this reaction. We’ve been here before!! This is a good style of “We’ve been here before” though. It’s not retreading it in a boring way, but it’s an exciting idea we’ve had before that lights up your day.
+
+We get a murder mystery story with La’an investigating the murder of a TV executive. The show he was in charge of was getting cancelled and someone in the room murdered him, so she has to go through all the suspects. Everyone is played by Trek actors, because canonically the best source of high def recordings they have are transporter buffer scans, so they go with those. The show was, of course, the shitty Trek pastiche from earlier. We watch as La’an solves the case (it’s Una, who’s the exec’s ex-wife) but the game changes the rules and ups the difficulty, killing her basically. La’an decides she needs help to put this story to its end, and enlists Spock. Oh boy, pushing THAT ship still. Also all the acting here is top notch.
+
+Meanwhile energy is fluctuating on the Enterprise and poor Scotty is running overtime to fix it.
+
+There’s some themes in the investigation. Emotions and romance getting in the way of things. Huh, funny that. Anyways La’an is almost killed in a trap set by the murderer, aaand is actually injured. Whoops, the holodeck is malfunctioning! Who could see THAT coming?! :D Scotty is already on it, but it seems the only way to fix it is if La’an solves the case from the inside.
+
+<img src="https://imgur.com/w6ry2wT.png" alt="trek">
+
+They give Uhura’s character a speech about how important Trek COULD be. It shows the lense of people’s lives through rubber masks and science fiction. It can inspired generations of kids! That’s wonderful that they gave this speech to her of all people.
+
+The stakes are raised as the Enterprise is about to be destroyed by some radiation that’s coming their way, and they don’t have the energy to dodge it. Gotta solve stuff fast!
+
+The solution to the murder mystery is actually a really fun twist. I won’t spoil it.
+
+La’an’s assessment is that the Holodeck is NOT a good idea for starships to have installed on at this time. Scotty asks for a footnote to be added that maybe if they fix the energy problems. Pike wants it buried in a box in a basement somewhere. Then Una is like “Scotty why the FUCK didn’t you ask any of the rest of us to help you??? We could have died” and the answer is PTSD. Una’s job now is to try and wrangle PTSD addled kids on this fucking starship.
+
+<img src="https://imgur.com/860zCki.png" alt="trek">
+
+We get one last dance scene and Spock and La’an and they kiss, of course. This is the third woman Spock has made out with in three seasons. Down, boy.
+
+But that’s less important than THIS:
+
+<img src="https://imgur.com/xqdvmxK.png" alt="trek">
+
+CHEESY TOS ERA BLOOPER REEL!
+
+This episode was just loads of fun. Okay, good. We can still do stuff I absolutely love.
